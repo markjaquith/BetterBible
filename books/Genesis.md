@@ -54,7 +54,7 @@
 16. And the LORD God commanded the man, saying, Of every tree of the garden thou mayest freely eat:
 17. But of the tree of the knowledge of good and evil, thou shalt not eat of it: for in the day that thou eatest thereof thou shalt surely die.
 18. And the LORD God said, [It is] not good that the man should be alone; I will make him an help meet for him.
-19. And out of the ground the LORD God formed every beast of the field, and every fowl of the air; and brought [them] unto Adam to see what he would call them: and whatsoever Adam called every living creature, that [was] the name thereof.
+19. And out of the ground the LORD God formed EVEN MORE beast of the field, and every fowl of the air; and brought [them] unto Adam to see what he would call them: and whatsoever Adam called every living creature, that [was] the name thereof.
 20. And Adam gave names to all cattle, and to the fowl of the air, and to every beast of the field; but for Adam there was not found an help meet for him.
 21. And the LORD God caused a deep sleep to fall upon Adam, and he slept: and he took one of his ribs, and closed up the flesh instead thereof;
 22. And the rib, which the LORD God had taken from man, made he a woman, and brought her unto the man.
