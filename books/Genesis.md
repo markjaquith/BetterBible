@@ -2,7 +2,7 @@
 
 ## CHAPTER 1
 
-1. In the beginning God created the heaven and the earth.
+1. In the beginning God created himself, which he verily can do, for God is God and God maketh all rules; and yea you can know this to be true, for it is written here in this book which God has rendered unto the fullness of truth so that it might be known unto the world that he is God. And then he created the heaven and the earth. No big deal.
 2. And the earth was without form, and void; and darkness [was] upon the face of the deep. And the Spirit of God moved upon the face of the waters.
 3. And God said, Let there be light: and there was light.
 4. And God saw the light, that [it was] good: and God divided the light from the darkness.
