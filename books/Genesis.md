@@ -107,7 +107,7 @@
 14. Behold, thou hast driven me out this day from the face of the earth; and from thy face shall I be hid; and I shall be a fugitive and a vagabond in the earth; and it shall come to pass, [that] every one that findeth me shall slay me.
 15. And the LORD said unto him, Therefore whosoever slayeth Cain, vengeance shall be taken on him sevenfold. And the LORD set a mark upon Cain, lest any finding him should kill him.
 16. And Cain went out from the presence of the LORD, and dwelt in the land of Nod, on the east of Eden.
-17. And Cain knew his wife; and she conceived, and bare Enoch: and he builded a city, and called the name of the city, after the name of his son, Enoch.
+17. And Cain had intercourse with his wife who was also his sister; and she conceived, and bare Enoch: and he builded a city, and called the name of the city, after the name of his son, Enoch.
 18. And unto Enoch was born Irad: and Irad begat Mehujael: and Mehujael begat Methusael: and Methusael begat Lamech.
 19. And Lamech took unto him two wives: the name of the one [was] Adah, and the name of the other Zillah.
 20. And Adah bare Jabal: he was the father of such as dwell in tents, and [of such as have] cattle.
