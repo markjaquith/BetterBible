@@ -122,10 +122,10 @@
 
 1. This [is] the book of the generations of Adam. In the day that God created man, in the likeness of God made he him;
 2. Male and female created he them; and blessed them, and called their name Adam, in the day when they were created.
-3. And Adam lived an hundred and thirty years, and begat [a son] in his own likeness, after his image; and called his name Seth:
+3. And Adam lived a hundred and thirty years, and begat [a son] in his own likeness, after his image; and called his name Seth:
 4. And the days of Adam after he had begotten Seth were eight hundred years: and he begat sons and daughters:
 5. And all the days that Adam lived were nine hundred and thirty years: and he died.
-6. And Seth lived an hundred and five years, and begat Enos:
+6. And Seth lived a hundred and five years, and begat Enos:
 7. And Seth lived after he begat Enos eight hundred and seven years, and begat sons and daughters:
 8. And all the days of Seth were nine hundred and twelve years: and he died.
 9. And Enos lived ninety years, and begat Cainan:
@@ -137,17 +137,17 @@
 15. And Mahalaleel lived sixty and five years, and begat Jared:
 16. And Mahalaleel lived after he begat Jared eight hundred and thirty years, and begat sons and daughters:
 17. And all the days of Mahalaleel were eight hundred ninety and five years: and he died.
-18. And Jared lived an hundred sixty and two years, and he begat Enoch:
+18. And Jared lived a hundred sixty and two years, and he begat Enoch:
 19. And Jared lived after he begat Enoch eight hundred years, and begat sons and daughters:
 20. And all the days of Jared were nine hundred sixty and two years: and he died.
 21. And Enoch lived sixty and five years, and begat Methuselah:
 22. And Enoch walked with God after he begat Methuselah three hundred years, and begat sons and daughters:
 23. And all the days of Enoch were three hundred sixty and five years:
 24. And Enoch walked with God: and he [was] not; for God took him.
-25. And Methuselah lived an hundred eighty and seven years, and begat Lamech:
+25. And Methuselah lived a hundred eighty and seven years, and begat Lamech:
 26. And Methuselah lived after he begat Lamech seven hundred eighty and two years, and begat sons and daughters:
 27. And all the days of Methuselah were nine hundred sixty and nine years: and he died.
-28. And Lamech lived an hundred eighty and two years, and begat a son:
+28. And Lamech lived a hundred eighty and two years, and begat a son:
 29. And he called his name Noah, saying, This [same] shall comfort us concerning our work and toil of our hands, because of the ground which the LORD hath cursed.
 30. And Lamech lived after he begat Noah five hundred ninety and five years, and begat sons and daughters:
 31. And all the days of Lamech were seven hundred seventy and seven years: and he died.
@@ -157,7 +157,7 @@
 
 1. And it came to pass, when men began to multiply on the face of the earth, and daughters were born unto them,
 2. That the sons of God saw the daughters of men that they [were] fair; and they took them wives of all which they chose.
-3. And the LORD said, My spirit shall not always strive with man, for that he also [is] flesh: yet his days shall be an hundred and twenty years.
+3. And the LORD said, My spirit shall not always strive with man, for that he also [is] flesh: yet his days shall be a hundred and twenty years.
 4. There were giants in the earth in those days; and also after that, when the sons of God came in unto the daughters of men, and they bare [children] to them, the same [became] mighty men which [were] of old, men of renown.
 5. And GOD saw that the wickedness of man [was] great in the earth, and [that] every imagination of the thoughts of his heart [was] only evil continually.
 6. And it repented the LORD that he had made man on the earth, and it grieved him at his heart.
@@ -203,7 +203,7 @@
 21. And all flesh died that moved upon the earth, both of fowl, and of cattle, and of beast, and of every creeping thing that creepeth upon the earth, and every man:
 22. All in whose nostrils [was] the breath of life, of all that [was] in the dry [land], died.
 23. And every living substance was destroyed which was upon the face of the ground, both man, and cattle, and the creeping things, and the fowl of the heaven; and they were destroyed from the earth: and Noah only remained [alive], and they that [were] with him in the ark.
-24. And the waters prevailed upon the earth an hundred and fifty days.
+24. And the waters prevailed upon the earth a hundred and fifty days.
 
 ## CHAPTER 8
 
@@ -251,7 +251,7 @@
 17. And God said unto Noah, This [is] the token of the covenant, which I have established between me and all flesh that [is] upon the earth.
 18. And the sons of Noah, that went forth of the ark, were Shem, and Ham, and Japheth: and Ham [is] the father of Canaan.
 19. These [are] the three sons of Noah: and of them was the whole earth overspread.
-20. And Noah began [to be] an husbandman, and he planted a vineyard:
+20. And Noah began [to be] a husbandman, and he planted a vineyard:
 21. And he drank of the wine, and was drunken; and he was uncovered within his tent.
 22. And Ham, the father of Canaan, saw the nakedness of his father, and told his two brethren without.
 23. And Shem and Japheth took a garment, and laid [it] upon both their shoulders, and went backward, and covered the nakedness of their father; and their faces [were] backward, and they saw not their father's nakedness.
@@ -308,7 +308,7 @@
 7. Go to, let us go down, and there confound their language, that they may not understand one another's speech.
 8. So the LORD scattered them abroad from thence upon the face of all the earth: and they left off to build the city.
 9. Therefore is the name of it called Babel; because the LORD did there confound the language of all the earth: and from thence did the LORD scatter them abroad upon the face of all the earth.
-10. These [are] the generations of Shem: Shem [was] an hundred years old, and begat Arphaxad two years after the flood:
+10. These [are] the generations of Shem: Shem [was] a hundred years old, and begat Arphaxad two years after the flood:
 11. And Shem lived after he begat Arphaxad five hundred years, and begat sons and daughters.
 12. And Arphaxad lived five and thirty years, and begat Salah:
 13. And Arphaxad lived after he begat Salah four hundred and three years, and begat sons and daughters.
@@ -323,7 +323,7 @@
 22. And Serug lived thirty years, and begat Nahor:
 23. And Serug lived after he begat Nahor two hundred years, and begat sons and daughters.
 24. And Nahor lived nine and twenty years, and begat Terah:
-25. And Nahor lived after he begat Terah an hundred and nineteen years, and begat sons and daughters.
+25. And Nahor lived after he begat Terah a hundred and nineteen years, and begat sons and daughters.
 26. And Terah lived seventy years, and begat Abram, Nahor, and Haran.
 27. Now these [are] the generations of Terah: Terah begat Abram, Nahor, and Haran; and Haran begat Lot.
 28. And Haran died before his father Terah in the land of his nativity, in Ur of the Chaldees.
@@ -413,10 +413,10 @@
 6. And he believed in the LORD; and he counted it to him for righteousness.
 7. And he said unto him, I [am] the LORD that brought thee out of Ur of the Chaldees, to give thee this land to inherit it.
 8. And he said, Lord GOD, whereby shall I know that I shall inherit it?
-9. And he said unto him, Take me an heifer of three years old, and a she goat of three years old, and a ram of three years old, and a turtledove, and a young pigeon.
+9. And he said unto him, Take me a heifer of three years old, and a she goat of three years old, and a ram of three years old, and a turtledove, and a young pigeon.
 10. And he took unto him all these, and divided them in the midst, and laid each piece one against another: but the birds divided he not.
 11. And when the fowls came down upon the carcases, Abram drove them away.
-12. And when the sun was going down, a deep sleep fell upon Abram; and, lo, an horror of great darkness fell upon him.
+12. And when the sun was going down, a deep sleep fell upon Abram; and, lo, a horror of great darkness fell upon him.
 13. And he said unto Abram, Know of a surety that thy seed shall be a stranger in a land [that is] not their's, and shall serve them; and they shall afflict them four hundred years;
 14. And also that nation, whom they shall serve, will I judge: and afterward shall they come out with great substance.
 15. And thou shalt go to thy fathers in peace; thou shalt be buried in a good old age.
@@ -429,7 +429,7 @@
 
 ## CHAPTER 16
 
-1. Now Sarai Abram's wife bare him no children: and she had an handmaid, an Egyptian, whose name [was] Hagar.
+1. Now Sarai Abram's wife bare him no children: and she had a handmaid, an Egyptian, whose name [was] Hagar.
 2. And Sarai said unto Abram, Behold now, the LORD hath restrained me from bearing: I pray thee, go in unto my maid; it may be that I may obtain children by her. And Abram hearkened to the voice of Sarai.
 3. And Sarai Abram's wife took Hagar her maid the Egyptian, after Abram had dwelt ten years in the land of Canaan, and gave her to her husband Abram to be his wife.
 4. And he went in unto Hagar, and she conceived: and when she saw that she had conceived, her mistress was despised in her eyes.
@@ -464,7 +464,7 @@
 14. And the uncircumcised man child whose flesh of his foreskin is not circumcised, that soul shall be cut off from his people; he hath broken my covenant.
 15. And God said unto Abraham, As for Sarai thy wife, thou shalt not call her name Sarai, but Sarah [shall] her name [be].
 16. And I will bless her, and give thee a son also of her: yea, I will bless her, and she shall be [a mother] of nations; kings of people shall be of her.
-17. Then Abraham fell upon his face, and laughed, and said in his heart, Shall [a child] be born unto him that is an hundred years old? and shall Sarah, that is ninety years old, bear?
+17. Then Abraham fell upon his face, and laughed, and said in his heart, Shall [a child] be born unto him that is a hundred years old? and shall Sarah, that is ninety years old, bear?
 18. And Abraham said unto God, O that Ishmael might live before thee!
 19. And God said, Sarah thy wife shall bear thee a son indeed; and thou shalt call his name Isaac: and I will establish my covenant with him for an everlasting covenant, [and] with his seed after him.
 20. And as for Ishmael, I have heard thee: Behold, I have blessed him, and will make him fruitful, and will multiply him exceedingly; twelve princes shall he beget, and I will make him a great nation.
@@ -580,7 +580,7 @@
 2. For Sarah conceived, and bare Abraham a son in his old age, at the set time of which God had spoken to him.
 3. And Abraham called the name of his son that was born unto him, whom Sarah bare to him, Isaac.
 4. And Abraham circumcised his son Isaac being eight days old, as God had commanded him.
-5. And Abraham was an hundred years old, when his son Isaac was born unto him.
+5. And Abraham was a hundred years old, when his son Isaac was born unto him.
 6. And Sarah said, God hath made me to laugh, [so that] all that hear will laugh with me.
 7. And she said, Who would have said unto Abraham, that Sarah should have given children suck? for I have born [him] a son in his old age.
 8. And the child grew, and was weaned: and Abraham made a great feast the [same] day that Isaac was weaned.
@@ -640,7 +640,7 @@
 
 ## CHAPTER 23
 
-1. And Sarah was an hundred and seven and twenty years old: [these were] the years of the life of Sarah.
+1. And Sarah was a hundred and seven and twenty years old: [these were] the years of the life of Sarah.
 2. And Sarah died in Kirjath-arba; the same [is] Hebron in the land of Canaan: and Abraham came to mourn for Sarah, and to weep for her.
 3. And Abraham stood up from before his dead, and spake unto the sons of Heth, saying,
 4. I [am] a stranger and a sojourner with you: give me a possession of a buryingplace with you, that I may bury my dead out of my sight.
@@ -739,7 +739,7 @@
 4. And the sons of Midian; Ephah, and Epher, and Hanoch, and Abida, and Eldaah. All these [were] the children of Keturah.
 5. And Abraham gave all that he had unto Isaac.
 6. But unto the sons of the concubines, which Abraham had, Abraham gave gifts, and sent them away from Isaac his son, while he yet lived, eastward, unto the east country.
-7. And these [are] the days of the years of Abraham's life which he lived, an hundred threescore and fifteen years.
+7. And these [are] the days of the years of Abraham's life which he lived, a hundred threescore and fifteen years.
 8. Then Abraham gave up the ghost, and died in a good old age, an old man, and full [of years]; and was gathered to his people.
 9. And his sons Isaac and Ishmael buried him in the cave of Machpelah, in the field of Ephron the son of Zohar the Hittite, which [is] before Mamre;
 10. The field which Abraham purchased of the sons of Heth: there was Abraham buried, and Sarah his wife.
@@ -749,7 +749,7 @@
 14. And Mishma, and Dumah, and Massa,
 15. Hadar, and Tema, Jetur, Naphish, and Kedemah:
 16. These [are] the sons of Ishmael, and these [are] their names, by their towns, and by their castles; twelve princes according to their nations.
-17. And these [are] the years of the life of Ishmael, an hundred and thirty and seven years: and he gave up the ghost and died; and was gathered unto his people.
+17. And these [are] the years of the life of Ishmael, a hundred and thirty and seven years: and he gave up the ghost and died; and was gathered unto his people.
 18. And they dwelt from Havilah unto Shur, that [is] before Egypt, as thou goest toward Assyria: [and] he died in the presence of all his brethren.
 19. And these [are] the generations of Isaac, Abraham's son: Abraham begat Isaac:
 20. And Isaac was forty years old when he took Rebekah to wife, the daughter of Bethuel the Syrian of Padan-aram, the sister to Laban the Syrian.
@@ -757,7 +757,7 @@
 22. And the children struggled together within her; and she said, If [it be] so, why [am] I thus? And she went to enquire of the LORD.
 23. And the LORD said unto her, Two nations [are] in thy womb, and two manner of people shall be separated from thy bowels; and [the one] people shall be stronger than [the other] people; and the elder shall serve the younger.
 24. And when her days to be delivered were fulfilled, behold, [there were] twins in her womb.
-25. And the first came out red, all over like an hairy garment; and they called his name Esau.
+25. And the first came out red, all over like a hairy garment; and they called his name Esau.
 26. And after that came his brother out, and his hand took hold on Esau's heel; and his name was called Jacob: and Isaac [was] threescore years old when she bare them.
 27. And the boys grew: and Esau was a cunning hunter, a man of the field; and Jacob [was] a plain man, dwelling in tents.
 28. And Isaac loved Esau, because he did eat of [his] venison: but Rebekah loved Jacob.
@@ -781,7 +781,7 @@
 9. And Abimelech called Isaac, and said, Behold, of a surety she [is] thy wife: and how saidst thou, She [is] my sister? And Isaac said unto him, Because I said, Lest I die for her.
 10. And Abimelech said, What [is] this thou hast done unto us? one of the people might lightly have lien with thy wife, and thou shouldest have brought guiltiness upon us.
 11. And Abimelech charged all [his] people, saying, He that toucheth this man or his wife shall surely be put to death.
-12. Then Isaac sowed in that land, and received in the same year an hundredfold: and the LORD blessed him.
+12. Then Isaac sowed in that land, and received in the same year a hundredfold: and the LORD blessed him.
 13. And the man waxed great, and went forward, and grew until he became very great:
 14. For he had possession of flocks, and possession of herds, and great store of servants: and the Philistines envied him.
 15. For all the wells which his father's servants had digged in the days of Abraham his father, the Philistines had stopped them, and filled them with earth.
@@ -905,7 +905,7 @@
 21. And Jacob said unto Laban, Give [me] my wife, for my days are fulfilled, that I may go in unto her.
 22. And Laban gathered together all the men of the place, and made a feast.
 23. And it came to pass in the evening, that he took Leah his daughter, and brought her to him; and he went in unto her.
-24. And Laban gave unto his daughter Leah Zilpah his maid [for] an handmaid.
+24. And Laban gave unto his daughter Leah Zilpah his maid [for] a handmaid.
 25. And it came to pass, that in the morning, behold, it [was] Leah: and he said to Laban, What [is] this thou hast done unto me? did not I serve with thee for Rachel? wherefore then hast thou beguiled me?
 26. And Laban said, It must not be so done in our country, to give the younger before the firstborn.
 27. Fulfil her week, and we will give thee this also for the service which thou shalt serve with me yet seven other years.
@@ -1011,7 +1011,7 @@
 43. And Laban answered and said unto Jacob, [These] daughters [are] my daughters, and [these] children [are] my children, and [these] cattle [are] my cattle, and all that thou seest [is] mine: and what can I do this day unto these my daughters, or unto their children which they have born?
 44. Now therefore come thou, let us make a covenant, I and thou; and let it be for a witness between me and thee.
 45. And Jacob took a stone, and set it up [for] a pillar.
-46. And Jacob said unto his brethren, Gather stones; and they took stones, and made an heap: and they did eat there upon the heap.
+46. And Jacob said unto his brethren, Gather stones; and they took stones, and made a heap: and they did eat there upon the heap.
 47. And Laban called it Jegarsahadutha: but Jacob called it Galeed.
 48. And Laban said, This heap [is] a witness between me and thee this day. Therefore was the name of it called Galeed;
 49. And Mizpah; for he said, The LORD watch between me and thee, when we are absent one from another.
@@ -1075,9 +1075,9 @@
 14. Let my lord, I pray thee, pass over before his servant: and I will lead on softly, according as the cattle that goeth before me and the children be able to endure, until I come unto my lord unto Seir.
 15. And Esau said, Let me now leave with thee [some] of the folk that [are] with me. And he said, What needeth it? let me find grace in the sight of my lord.
 16. So Esau returned that day on his way unto Seir.
-17. And Jacob journeyed to Succoth, and built him an house, and made booths for his cattle: therefore the name of the place is called Succoth.
+17. And Jacob journeyed to Succoth, and built him a house, and made booths for his cattle: therefore the name of the place is called Succoth.
 18. And Jacob came to Shalem, a city of Shechem, which [is] in the land of Canaan, when he came from Padan-aram; and pitched his tent before the city.
-19. And he bought a parcel of a field, where he had spread his tent, at the hand of the children of Hamor, Shechem's father, for an hundred pieces of money.
+19. And he bought a parcel of a field, where he had spread his tent, at the hand of the children of Hamor, Shechem's father, for a hundred pieces of money.
 20. And he erected there an altar, and called it El-elohe-Israel.
 
 ## CHAPTER 34
@@ -1112,7 +1112,7 @@
 28. They took their sheep, and their oxen, and their asses, and that which [was] in the city, and that which [was] in the field,
 29. And all their wealth, and all their little ones, and their wives took they captive, and spoiled even all that [was] in the house.
 30. And Jacob said to Simeon and Levi, Ye have troubled me to make me to stink among the inhabitants of the land, among the Canaanites and the Perizzites: and I [being] few in number, they shall gather themselves together against me, and slay me; and I shall be destroyed, I and my house.
-31. And they said, Should he deal with our sister as with an harlot?
+31. And they said, Should he deal with our sister as with a harlot?
 
 ## CHAPTER 35
 
@@ -1143,7 +1143,7 @@
 25. And the sons of Bilhah, Rachel's handmaid; Dan, and Naphtali:
 26. And the sons of Zilpah, Leah's handmaid; Gad, and Asher: these [are] the sons of Jacob, which were born to him in Padan-aram.
 27. And Jacob came unto Isaac his father unto Mamre, unto the city of Arbah, which [is] Hebron, where Abraham and Isaac sojourned.
-28. And the days of Isaac were an hundred and fourscore years.
+28. And the days of Isaac were a hundred and fourscore years.
 29. And Isaac gave up the ghost, and died, and was gathered unto his people, [being] old and full of days: and his sons Esau and Jacob buried him.
 
 ## CHAPTER 36
@@ -1247,7 +1247,7 @@
 12. And in process of time the daughter of Shuah Judah's wife died; and Judah was comforted, and went up unto his sheepshearers to Timnath, he and his friend Hirah the Adullamite.
 13. And it was told Tamar, saying, Behold thy father in law goeth up to Timnath to shear his sheep.
 14. And she put her widow's garments off from her, and covered her with a vail, and wrapped herself, and sat in an open place, which [is] by the way to Timnath; for she saw that Shelah was grown, and she was not given unto him to wife.
-15. When Judah saw her, he thought her [to be] an harlot; because she had covered her face.
+15. When Judah saw her, he thought her [to be] a harlot; because she had covered her face.
 16. And he turned unto her by the way, and said, Go to, I pray thee, let me come in unto thee; (for he knew not that she [was] his daughter in law.) And she said, What wilt thou give me, that thou mayest come in unto me?
 17. And he said, I will send [thee] a kid from the flock. And she said, Wilt thou give [me] a pledge, till thou send [it]?
 18. And he said, What pledge shall I give thee? And she said, Thy signet, and thy bracelets, and thy staff that [is] in thine hand. And he gave [it] her, and came in unto her, and she conceived by him.
@@ -1279,7 +1279,7 @@
 11. And it came to pass about this time, that [Joseph] went into the house to do his business; and [there was] none of the men of the house there within.
 12. And she caught him by his garment, saying, Lie with me: and he left his garment in her hand, and fled, and got him out.
 13. And it came to pass, when she saw that he had left his garment in her hand, and was fled forth,
-14. That she called unto the men of her house, and spake unto them, saying, See, he hath brought in an Hebrew unto us to mock us; he came in unto me to lie with me, and I cried with a loud voice:
+14. That she called unto the men of her house, and spake unto them, saying, See, he hath brought in a Hebrew unto us to mock us; he came in unto me to lie with me, and I cried with a loud voice:
 15. And it came to pass, when he heard that I lifted up my voice and cried, that he left his garment with me, and fled, and got him out.
 16. And she laid up his garment by her, until his lord came home.
 17. And she spake unto him according to these words, saying, The Hebrew servant, which thou hast brought unto us, came in unto me to mock me:
@@ -1329,7 +1329,7 @@
 9. Then spake the chief butler unto Pharaoh, saying, I do remember my faults this day:
 10. Pharaoh was wroth with his servants, and put me in ward in the captain of the guard's house, [both] me and the chief baker:
 11. And we dreamed a dream in one night, I and he; we dreamed each man according to the interpretation of his dream.
-12. And [there was] there with us a young man, an Hebrew, servant to the captain of the guard; and we told him, and he interpreted to us our dreams; to each man according to his dream he did interpret.
+12. And [there was] there with us a young man, a Hebrew, servant to the captain of the guard; and we told him, and he interpreted to us our dreams; to each man according to his dream he did interpret.
 13. And it came to pass, as he interpreted to us, so it was; me he restored unto mine office, and him he hanged.
 14. Then Pharaoh sent and called Joseph, and they brought him hastily out of the dungeon: and he shaved [himself], and changed his raiment, and came in unto Pharaoh.
 15. And Pharaoh said unto Joseph, I have dreamed a dream, and [there is] none that can interpret it: and I have heard say of thee, [that] thou canst understand a dream to interpret it.
@@ -1569,7 +1569,7 @@
 6. The land of Egypt [is] before thee; in the best of the land make thy father and brethren to dwell; in the land of Goshen let them dwell: and if thou knowest [any] men of activity among them, then make them rulers over my cattle.
 7. And Joseph brought in Jacob his father, and set him before Pharaoh: and Jacob blessed Pharaoh.
 8. And Pharaoh said unto Jacob, How old [art] thou?
-9. And Jacob said unto Pharaoh, The days of the years of my pilgrimage [are] an hundred and thirty years: few and evil have the days of the years of my life been, and have not attained unto the days of the years of the life of my fathers in the days of their pilgrimage.
+9. And Jacob said unto Pharaoh, The days of the years of my pilgrimage [are] a hundred and thirty years: few and evil have the days of the years of my life been, and have not attained unto the days of the years of the life of my fathers in the days of their pilgrimage.
 10. And Jacob blessed Pharaoh, and went out from before Pharaoh.
 11. And Joseph placed his father and his brethren, and gave them a possession in the land of Egypt, in the best of the land, in the land of Rameses, as Pharaoh had commanded.
 12. And Joseph nourished his father, and his brethren, and all his father's household, with bread, according to [their] families.
@@ -1588,7 +1588,7 @@
 25. And they said, Thou hast saved our lives: let us find grace in the sight of my lord, and we will be Pharaoh's servants.
 26. And Joseph made it a law over the land of Egypt unto this day, [that] Pharaoh should have the fifth [part]; except the land of the priests only, [which] became not Pharaoh's.
 27. And Israel dwelt in the land of Egypt, in the country of Goshen; and they had possessions therein, and grew, and multiplied exceedingly.
-28. And Jacob lived in the land of Egypt seventeen years: so the whole age of Jacob was an hundred forty and seven years.
+28. And Jacob lived in the land of Egypt seventeen years: so the whole age of Jacob was a hundred forty and seven years.
 29. And the time drew nigh that Israel must die: and he called his son Joseph, and said unto him, If now I have found grace in thy sight, put, I pray thee, thy hand under my thigh, and deal kindly and truly with me; bury me not, I pray thee, in Egypt:
 30. But I will lie with my fathers, and thou shalt carry me out of Egypt, and bury me in their buryingplace. And he said, I will do as thou hast said.
 31. And he said, Swear unto me. And he sware unto him. And Israel bowed himself upon the bed's head.
@@ -1632,7 +1632,7 @@
 10. The sceptre shall not depart from Judah, nor a lawgiver from between his feet, until Shiloh come; and unto him [shall] the gathering of the people [be].
 11. Binding his foal unto the vine, and his ass's colt unto the choice vine; he washed his garments in wine, and his clothes in the blood of grapes:
 12. His eyes [shall be] red with wine, and his teeth white with milk.
-13. Zebulun shall dwell at the haven of the sea; and he [shall be] for an haven of ships; and his border [shall be] unto Zidon.
+13. Zebulun shall dwell at the haven of the sea; and he [shall be] for a haven of ships; and his border [shall be] unto Zidon.
 14. Issachar [is] a strong ass couching down between two burdens:
 15. And he saw that rest [was] good, and the land that [it was] pleasant; and bowed his shoulder to bear, and became a servant unto tribute.
 16. Dan shall judge his people, as one of the tribes of Israel.
@@ -1677,8 +1677,8 @@
 19. And Joseph said unto them, Fear not: for [am] I in the place of God?
 20. But as for you, ye thought evil against me; [but] God meant it unto good, to bring to pass, as [it is] this day, to save much people alive.
 21. Now therefore fear ye not: I will nourish you, and your little ones. And he comforted them, and spake kindly unto them.
-22. And Joseph dwelt in Egypt, he, and his father's house: and Joseph lived an hundred and ten years.
+22. And Joseph dwelt in Egypt, he, and his father's house: and Joseph lived a hundred and ten years.
 23. And Joseph saw Ephraim's children of the third [generation]: the children also of Machir the son of Manasseh were brought up upon Joseph's knees.
 24. And Joseph said unto his brethren, I die: and God will surely visit you, and bring you out of this land unto the land which he sware to Abraham, to Isaac, and to Jacob.
 25. And Joseph took an oath of the children of Israel, saying, God will surely visit you, and ye shall carry up my bones from hence.
-26. So Joseph died, [being] an hundred and ten years old: and they embalmed him, and he was put in a coffin in Egypt.
+26. So Joseph died, [being] a hundred and ten years old: and they embalmed him, and he was put in a coffin in Egypt.
