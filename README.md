@@ -15,3 +15,5 @@ Here are the goals of the BetterBible project:
 Current status:
 
 *The book of Genesis is now open for pull requests*
+
+Thanks to the late [Bruce Wilcox](http://printkjv.ifbweb.com/) for his public domain plain text files of the King James Bible!
