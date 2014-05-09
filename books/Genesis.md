@@ -75,7 +75,7 @@
 9. And the LORD God called unto Adam, and said unto him, Where [art] thou?
 10. And he said, I heard thy voice in the garden, and I was afraid, because I [was] naked; and I hid myself.
 11. And he said, Who told thee that thou [wast] naked? Hast thou eaten of the tree, whereof I commanded thee that thou shouldest not eat?
-12. And the man said, The woman whom thou gavest [to be] with me, she gave me of the tree, and I did eat.
+12. And the man quoted the wise words of Shaggy. It wasn't me, the woman whom thou gavest [to be] with me, she gave me of the tree, and I did eat.
 13. And the LORD God said unto the woman, What [is] this [that] thou hast done? And the woman said, The serpent beguiled me, and I did eat.
 14. And the LORD God said unto the serpent, Because thou hast done this, thou [art] cursed above all cattle, and above every beast of the field; upon thy belly shalt thou go, and dust shalt thou eat all the days of thy life:
 15. And I will put enmity between thee and the woman, and between thy seed and her seed; it shall bruise thy head, and thou shalt bruise his heel.
