@@ -10,7 +10,8 @@ Here are the goals of the BetterBible project:
 1. **Fix errors** — Where the Bible makes obvious mistakes, let's fix them.
 2. **Inject humor** — The Bible can be a dry read and could do with some humor.
 3. **Modernize** — Make it something that we can relate to. Jesus didn't address a topic? Well in this version, he can.
-4. **Blaspheme** — Because none of the above would be very fun if we didn't.
+4. **Clarify** — The verses about homosexuals are apparently important and relevant today. Not so much the ones about shellfish. Let's not leave these things up to interpretation.
+5. **Blaspheme** — Because none of the above would be very fun if we didn't.
 
 Current status:
 
