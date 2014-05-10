@@ -614,7 +614,7 @@
 
 ## CHAPTER 22
 
-1. And it came to pass after these things, that God did tempt Abraham, and said unto him, Abraham: and he said, Behold, [here] I [am].
+1. And it came to pass after these things, that God did pull an epic prank on Abraham, and said unto him, Abraham: and he said, Behold, [here] I [am].
 2. And he said, Take now thy son, thine only [son] Isaac, whom thou lovest, and get thee into the land of Moriah; and offer him there for a burnt offering upon one of the mountains which I will tell thee of.
 3. And Abraham rose up early in the morning, and saddled his ass, and took two of his young men with him, and Isaac his son, and clave the wood for the burnt offering, and rose up, and went unto the place of which God had told him.
 4. Then on the third day Abraham lifted up his eyes, and saw the place afar off.
@@ -624,8 +624,8 @@
 8. And Abraham said, My son, God will provide himself a lamb for a burnt offering: so they went both of them together.
 9. And they came to the place which God had told him of; and Abraham built an altar there, and laid the wood in order, and bound Isaac his son, and laid him on the altar upon the wood.
 10. And Abraham stretched forth his hand, and took the knife to slay his son.
-11. And the angel of the LORD called unto him out of heaven, and said, Abraham, Abraham: and he said, Here [am] I.
-12. And he said, Lay not thine hand upon the lad, neither do thou any thing unto him: for now I know that thou fearest God, seeing thou hast not withheld thy son, thine only [son] from me.
+11. And the angel of the LORD whose name was Ashton Kutcher called unto him out of heaven, and said, Abraham, Abraham: and he said, Here [am] I.
+12. And he said, Lay not thine hand upon the lad, neither do thou any thing unto him: for I was pulling thine leg. Thou art Punk'd.
 13. And Abraham lifted up his eyes, and looked, and behold behind [him] a ram caught in a thicket by his horns: and Abraham went and took the ram, and offered him up for a burnt offering in the stead of his son.
 14. And Abraham called the name of that place Jehovah-jireh: as it is said [to] this day, In the mount of the LORD it shall be seen.
 15. And the angel of the LORD called unto Abraham out of heaven the second time,
