@@ -27,8 +27,8 @@
 23. And the evening and the morning were the fifth day.
 24. And God said, Let the earth bring forth the living creature after his kind, cattle, and creeping thing, and beast of the earth after his kind: and it was so.
 25. And God made the beast of the earth after his kind, and cattle after their kind, and every thing that creepeth upon the earth after his kind: and God saw that [it was] good.
-26. And God said, Let us make man in our image, after our likeness: and let them have dominion over the fish of the sea, and over the fowl of the air, and over the cattle, and over all the earth, and over every creeping thing that creepeth upon the earth.
-27. So God created man in his [own] image, in the image of God created he him; male and female created he them.
+26. And God said, Let us make dudes in our image, after our likeness: and let them have dominion over the fish of the sea, and over the fowl of the air, and over the cattle, and over all the earth, and over every creeping thing that creepeth upon the earth.
+27. So God created dudes in his [own] image, in the image of God created he him; male and female created he them.
 28. And God blessed them, and God said unto them, Be fruitful, and multiply, and replenish the earth, and subdue it: and have dominion over the fish of the sea, and over the fowl of the air, and over every living thing that moveth upon the earth.
 29. And God said, Behold, I have given you every herb bearing seed, which [is] upon the face of all the earth, and every tree, in the which [is] the fruit of a tree yielding seed; to you it shall be for meat.
 30. And to every beast of the earth, and to every fowl of the air, and to every thing that creepeth upon the earth, wherein [there is] life, [I have given] every green herb for meat: and it was so.
@@ -40,27 +40,27 @@
 2. And on the seventh day God ended his work which he had made; and he rested on the seventh day from all his work which he had made.
 3. And God blessed the seventh day, and sanctified it: because that in it he had rested from all his work which God created and made.
 4. These [are] the generations of the heavens and of the earth when they were created, in the day that the LORD God made the earth and the heavens,
-5. And every plant of the field before it was in the earth, and every herb of the field before it grew: for the LORD God had not caused it to rain upon the earth, and [there was] not a man to till the ground.
+5. And every plant of the field before it was in the earth, and every herb of the field before it grew: for the LORD God had not caused it to rain upon the earth, and [there was] not a dude to till the ground.
 6. But there went up a mist from the earth, and watered the whole face of the ground.
-7. And the LORD God formed man [of] the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul.
-8. And the LORD God planted a garden eastward in Eden; and there he put the man whom he had formed.
+7. And the LORD God formed the dude [of] the dust of the ground, and breathed into his nostrils the breath of life; and the dude became a living soul.
+8. And the LORD God planted a garden eastward in Eden; and there he put the dude whom he had formed.
 9. And out of the ground made the LORD God to grow every tree that is pleasant to the sight, and good for food; the tree of life also in the midst of the garden, and the tree of knowledge of good and evil.
 10. And a river went out of Eden to water the garden; and from thence it was parted, and became into four heads.
 11. The name of the first [is] Pison: that [is] it which compasseth the whole land of Havilah, where [there is] gold;
 12. And the gold of that land [is] good: there [is] bdellium and the onyx stone.
 13. And the name of the second river [is] Gihon: the same [is] it that compasseth the whole land of Ethiopia.
 14. And the name of the third river [is] Hiddekel: that [is] it which goeth toward the east of Assyria. And the fourth river [is] Euphrates.
-15. And the LORD God took the man, and put him into the garden of Eden to dress it and to keep it.
-16. And the LORD God commanded the man, saying, Of every tree of the garden thou mayest freely eat:
+15. And the LORD God took the dude, and put him into the garden of Eden to dress it and to keep it.
+16. And the LORD God commanded the dude, saying, Of every tree of the garden thou mayest freely eat:
 17. But of the tree of the knowledge of good and evil, thou shalt not eat of it: for in the day that thou eatest thereof thou shalt surely die.
-18. And the LORD God said, [It is] not good that the man should be alone; I will make him an help meet for him.
-19. And out of the ground the LORD God formed EVEN MORE beasts of the field, and every fowl of the air; and brought [them] unto Adam to see what he would call them: and whatsoever Adam called every living creature, that [was] the name thereof.
-20. And Adam gave names to all cattle, and to the fowl of the air, and to every beast of the field; but for Adam there was not found an help meet for him.
-21. And the LORD God caused a deep sleep to fall upon Adam, and he slept: and he took one of his ribs, and closed up the flesh instead thereof, having decided making man out of the ground was too time-consuming, inefficient, and generally unbelievable.
-22. And the rib, which the LORD God had taken from man, made he a woman, and brought her unto the man like a fish monger showing a customer the catch of the day.
-23. And Adam said, This is now bone of my bones, and flesh of my flesh: she shall be called Woman, because she was taken out of Man, which is of course the default human model.
-24. Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh. For woman existeth not without her sugar daddy.
-25. And they were both naked, the man and his wife, and were not ashamed.
+18. And the LORD God said, [It is] not good that the dude should be alone; I will make him an help meet for him.
+19. And out of the ground the LORD God formed EVEN MORE beasts of the field, and every fowl of the air; and brought [them] unto Lebowski to see what he would call them: and whatsoever Lebowski called every living creature, that [was] the name thereof.
+20. And Lebowski gave names to all cattle, and to the fowl of the air, and to every beast of the field; but for Lebowski there was not found an help meet for him.
+21. And the LORD God caused a deep sleep to fall upon Lebowski, and he slept: and he took one of his ribs, and closed up the flesh instead thereof, having decided making dudes out of the ground was too time-consuming, inefficient, and generally unbelievable.
+22. And the rib, which the LORD God had taken from the dude, made he a woman, and brought her unto the dude like a fish monger showing a customer the catch of the day.
+23. And Lebowski said, This is now bone of my bones, and flesh of my flesh: she shall be called Woman, because she was taken out of Man, which is of course the default human model.
+24. Therefore shall a dude leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh. For woman existeth not without her sugar daddy.
+25. And they were both naked, the dude and his wife, and were not ashamed.
 
 ## CHAPTER 3
 
@@ -71,27 +71,27 @@
 5. For God doth know that in the day ye eat thereof, then your eyes shall be opened, and ye shall be as gods, knowing good and evil.
 6. And when the woman saw that the tree [was] good for food, and that it [was] pleasant to the eyes, and a tree to be desired to make [one] wise, she took of the fruit thereof, and did eat, and gave also unto her husband with her; and he did eat.
 7. And the eyes of them both were opened, and they knew that they [were] naked; and they sewed fig leaves together, and made themselves aprons.
-8. And they heard the voice of the LORD God walking in the garden in the cool of the day: and Adam and his wife hid themselves from the presence of the LORD God amongst the trees of the garden.
-9. And the LORD God called unto Adam, and said unto him, Where [art] thou?
+8. And they heard the voice of the LORD God walking in the garden in the cool of the day: and Lebowski and his wife hid themselves from the presence of the LORD God amongst the trees of the garden.
+9. And the LORD God called unto Lebowski, and said unto him, Where [art] thou?
 10. And he said, I heard thy voice in the garden, and I was afraid, because I [was] naked; and I hid myself.
 11. And he said, Who told thee that thou [wast] naked? Hast thou eaten of the tree, whereof I commanded thee that thou shouldest not eat?
-12. And the man quoted the wise words of Shaggy. It wasn't me, the woman whom thou gavest [to be] with me, she gave me of the tree, and I did eat.
+12. And the dude quoted the wise words of Shaggy. It wasn't me, the woman whom thou gavest [to be] with me, she gave me of the tree, and I did eat.
 13. And the LORD God said unto the woman, What [is] this [that] thou hast done? And the woman said, The serpent beguiled me, and I did eat.
 14. And the LORD God said unto the serpent, Because thou hast done this, thou [art] cursed above all cattle, and above every beast of the field; upon thy belly shalt thou go, and dust shalt thou eat all the days of thy life:
 15. And I will put enmity between thee and the woman, and between thy seed and her seed; it shall bruise thy head, and thou shalt bruise his heel.
 16. Unto the woman he said, I will greatly multiply thy sorrow and thy conception; in sorrow thou shalt bring forth children; and thy desire [shall be] to thy husband, and he shall rule over thee.
-17. And unto Adam he said, Because thou hast hearkened unto the voice of thy wife, and hast eaten of the tree, of which I commanded thee, saying, Thou shalt not eat of it: cursed [is] the ground for thy sake; in sorrow shalt thou eat [of] it all the days of thy life;
+17. And unto Lebowski he said, Because thou hast hearkened unto the voice of thy wife, and hast eaten of the tree, of which I commanded thee, saying, Thou shalt not eat of it: cursed [is] the ground for thy sake; in sorrow shalt thou eat [of] it all the days of thy life;
 18. Thorns also and thistles shall it bring forth to thee; and thou shalt eat the herb of the field;
 19. In the sweat of thy face shalt thou eat bread, till thou return unto the ground; for out of it wast thou taken: for dust thou [art], and unto dust shalt thou return.
-20. And Adam called his wife's name Eve; because she was the mother of all living.
-21. Unto Adam also and to his wife did the LORD God make coats of skins, and clothed them.
-22. And the LORD God said, Behold, the man is become as one of us, to know good and evil: and now, lest he put forth his hand, and take also of the tree of life, and eat, and live for ever:
+20. And Lebowski called his wife's name Eve; because she was the mother of all living.
+21. Unto Lebowski also and to his wife did the LORD God make coats of skins, and clothed them.
+22. And the LORD God said, Behold, the dude is become as one of us, to know good and evil: and now, lest he put forth his hand, and take also of the tree of life, and eat, and live for ever:
 23. Therefore the LORD God sent him forth from the garden of Eden, to till the ground from whence he was taken.
-24. So he drove out the man; and he placed at the east of the garden of Eden Cherubims, and a flaming sword which turned every way, to keep the way of the tree of life.
+24. So he drove out the dude; and he placed at the east of the garden of Eden Cherubims, and a flaming sword which turned every way, to keep the way of the tree of life.
 
 ## CHAPTER 4
 
-1. And Adam knew Eve his wife; and she conceived, and bare Cain, and said, I have gotten a man from the LORD.
+1. And Lebowski knew Eve his wife; and she conceived, and bare Cain, and said, I have gotten a man from the LORD.
 2. And she again bare his brother Abel. And Abel was a keeper of sheep, but Cain was a tiller of the ground.
 3. And in process of time it came to pass, that Cain brought of the fruit of the ground an offering unto the LORD.
 4. And Abel, he also brought of the firstlings of his flock and of the fat thereof. And the LORD had respect unto Abel and to his offering:
@@ -115,16 +115,16 @@
 22. And Zillah, she also bare Tubal-cain, an instructer of every artificer in brass and iron: and the sister of Tubal-cain [was] Naamah.
 23. And Lamech said unto his wives, Adah and Zillah, Hear my voice; ye wives of Lamech, hearken unto my speech: for I have slain a man to my wounding, and a young man to my hurt.
 24. If Cain shall be avenged sevenfold, truly Lamech seventy and sevenfold.
-25. And Adam knew his wife again; and she bare a son, and called his name Seth: For God, [said she], hath appointed me another seed instead of Abel, whom Cain slew.
+25. And Lebowski knew his wife again; and she bare a son, and called his name Seth: For God, [said she], hath appointed me another seed instead of Abel, whom Cain slew.
 26. And to Seth, to him also there was born a son; and he called his name Enos: then began men to call upon the name of the LORD.
 
 ## CHAPTER 5
 
-1. This [is] the book of the generations of Adam. In the day that God created man, in the likeness of God made he him;
-2. Male and female created he them; and blessed them, and called their name Adam, in the day when they were created.
-3. And Adam lived a hundred and thirty years, and begat [a son] in his own likeness, after his image; and called his name Seth:
-4. And the days of Adam after he had begotten Seth were eight hundred years: and he begat sons and daughters:
-5. And all the days that Adam lived were nine hundred and thirty years: and he died.
+1. This [is] the book of the generations of Lebowski. In the day that God created dudes, in the likeness of God made he him;
+2. Male and female created he them; and blessed them, and called their name Lebowski, in the day when they were created.
+3. And Lebowski lived a hundred and thirty years, and begat [a son] in his own likeness, after his image; and called his name Seth:
+4. And the days of Lebowski after he had begotten Seth were eight hundred years: and he begat sons and daughters:
+5. And all the days that Lebowski lived were nine hundred and thirty years: and he died.
 6. And Seth lived a hundred and five years, and begat Enos:
 7. And Seth lived after he begat Enos eight hundred and seven years, and begat sons and daughters:
 8. And all the days of Seth were nine hundred and twelve years: and he died.
@@ -489,7 +489,7 @@
 8. And he took butter, and milk, and the calf which he had dressed, and set [it] before them; and he stood by them under the tree, and they did eat.
 9. And they said unto him, Where [is] Sarah thy wife? And he said, Behold, in the tent.
 10. And he said, I will certainly return unto thee according to the time of life; and, lo, Sarah thy wife shall have a son. And Sarah heard [it] in the tent door, which [was] behind him.
-11. Now Abraham and Sarah [were] old [and] well stricken in age; [and] it ceased to be with Sarah after the manner of women.
+11. Now Abraham and Sarah [were] old [and] well stricken in age; [and] it ceased to be with Sarah after the dudener of women.
 12. Therefore Sarah laughed within herself, saying, After I am waxed old shall I have pleasure, my lord being old also?
 13. And the LORD said unto Abraham, Wherefore did Sarah laugh, saying, Shall I of a surety bear a child, which am old?
 14. Is any thing too hard for the LORD? At the time appointed I will return unto thee, according to the time of life, and Sarah shall have a son.
@@ -523,7 +523,7 @@
 6. And Lot went out at the door unto them, and shut the door after him,
 7. And said, I pray you, brethren, do not so wickedly.
 8. Behold now, I have two daughters which have not known man; let me, I pray you, bring them out unto you, and do ye to them as [is] good in your eyes: only unto these men do nothing; for therefore came they under the shadow of my roof.
-9. And they said, Stand back. And they said [again], This one [fellow] came in to sojourn, and he will needs be a judge: now will we deal worse with thee, than with them. And they pressed sore upon the man, [even] Lot, and came near to break the door.
+9. And they said, Stand back. And they said [again], This one [fellow] came in to sojourn, and he will needs be a judge: now will we deal worse with thee, than with them. And they pressed sore upon the dude, [even] Lot, and came near to break the door.
 10. But the men put forth their hand, and pulled Lot into the house to them, and shut to the door.
 11. And they smote the men that [were] at the door of the house with blindness, both small and great: so that they wearied themselves to find the door.
 12. And the men said unto Lot, Hast thou here any besides? son in law, and thy sons, and thy daughters, and whatsoever thou hast in the city, bring [them] out of this place:
@@ -545,7 +545,7 @@
 28. And he looked toward Sodom and Gomorrah, and toward all the land of the plain, and beheld, and, lo, the smoke of the country went up as the smoke of a furnace.
 29. And it came to pass, when God destroyed the cities of the plain, that God remembered Abraham, and sent Lot out of the midst of the overthrow, when he overthrew the cities in the which Lot dwelt.
 30. And Lot went up out of Zoar, and dwelt in the mountain, and his two daughters with him; for he feared to dwell in Zoar: and he dwelt in a cave, he and his two daughters.
-31. And the firstborn said unto the younger, Our father [is] old, and [there is] not a man in the earth to come in unto us after the manner of all the earth:
+31. And the firstborn said unto the younger, Our father [is] old, and [there is] not a man in the earth to come in unto us after the dudener of all the earth:
 32. Come, let us make our father drink wine, and we will lie with him, that we may preserve seed of our father.
 33. And they made their father drink wine that night: and the firstborn went in, and lay with her father; and he perceived not when she lay down, nor when she arose.
 34. And it came to pass on the morrow, that the firstborn said unto the younger, Behold, I lay yesternight with my father: let us make him drink wine this night also; and go thou in, [and] lie with him, that we may preserve seed of our father.
@@ -562,7 +562,7 @@
 4. But Abimelech had not come near her: and he said, Lord, wilt thou slay also a righteous nation?
 5. Said he not unto me, She [is] my sister? and she, even she herself said, He [is] my brother: in the integrity of my heart and innocency of my hands have I done this.
 6. And God said unto him in a dream, Yea, I know that thou didst this in the integrity of thy heart; for I also withheld thee from sinning against me: therefore suffered I thee not to touch her.
-7. Now therefore restore the man [his] wife; for he [is] a prophet, and he shall pray for thee, and thou shalt live: and if thou restore [her] not, know thou that thou shalt surely die, thou, and all that [are] thine.
+7. Now therefore restore the dude [his] wife; for he [is] a prophet, and he shall pray for thee, and thou shalt live: and if thou restore [her] not, know thou that thou shalt surely die, thou, and all that [are] thine.
 8. Therefore Abimelech rose early in the morning, and called all his servants, and told all these things in their ears: and the men were sore afraid.
 9. Then Abimelech called Abraham, and said unto him, What hast thou done unto us? and what have I offended thee, that thou hast brought on me and on my kingdom a great sin? thou hast done deeds unto me that ought not to be done.
 10. And Abimelech said unto Abraham, What sawest thou, that thou hast done this thing?
@@ -684,18 +684,18 @@
 18. And she said, Drink, my lord: and she hasted, and let down her pitcher upon her hand, and gave him drink.
 19. And when she had done giving him drink, she said, I will draw [water] for thy camels also, until they have done drinking.
 20. And she hasted, and emptied her pitcher into the trough, and ran again unto the well to draw [water], and drew for all his camels.
-21. And the man wondering at her held his peace, to wit whether the LORD had made his journey prosperous or not.
-22. And it came to pass, as the camels had done drinking, that the man took a golden earring of half a shekel weight, and two bracelets for her hands of ten [shekels] weight of gold;
+21. And the dude wondering at her held his peace, to wit whether the LORD had made his journey prosperous or not.
+22. And it came to pass, as the camels had done drinking, that the dude took a golden earring of half a shekel weight, and two bracelets for her hands of ten [shekels] weight of gold;
 23. And said, Whose daughter [art] thou? tell me, I pray thee: is there room [in] thy father's house for us to lodge in?
 24. And she said unto him, I [am] the daughter of Bethuel the son of Milcah, which she bare unto Nahor.
 25. She said moreover unto him, We have both straw and provender enough, and room to lodge in.
-26. And the man bowed down his head, and worshipped the LORD.
+26. And the dude bowed down his head, and worshipped the LORD.
 27. And he said, Blessed [be] the LORD God of my master Abraham, who hath not left destitute my master of his mercy and his truth: I [being] in the way, the LORD led me to the house of my master's brethren.
 28. And the damsel ran, and told [them of] her mother's house these things.
-29. And Rebekah had a brother, and his name [was] Laban: and Laban ran out unto the man, unto the well.
-30. And it came to pass, when he saw the earring and bracelets upon his sister's hands, and when he heard the words of Rebekah his sister, saying, Thus spake the man unto me; that he came unto the man; and, behold, he stood by the camels at the well.
+29. And Rebekah had a brother, and his name [was] Laban: and Laban ran out unto the dude, unto the well.
+30. And it came to pass, when he saw the earring and bracelets upon his sister's hands, and when he heard the words of Rebekah his sister, saying, Thus spake the dude unto me; that he came unto the dude; and, behold, he stood by the camels at the well.
 31. And he said, Come in, thou blessed of the LORD; wherefore standest thou without? for I have prepared the house, and room for the camels.
-32. And the man came into the house: and he ungirded his camels, and gave straw and provender for the camels, and water to wash his feet, and the men's feet that [were] with him.
+32. And the dude came into the house: and he ungirded his camels, and gave straw and provender for the camels, and water to wash his feet, and the men's feet that [were] with him.
 33. And there was set [meat] before him to eat: but he said, I will not eat, until I have told mine errand. And he said, Speak on.
 34. And he said, I [am] Abraham's servant.
 35. And the LORD hath blessed my master greatly; and he is become great: and he hath given him flocks, and herds, and silver, and gold, and menservants, and maidservants, and camels, and asses.
@@ -724,7 +724,7 @@
 58. And they called Rebekah, and said unto her, Wilt thou go with this man? And she said, I will go.
 59. And they sent away Rebekah their sister, and her nurse, and Abraham's servant, and his men.
 60. And they blessed Rebekah, and said unto her, Thou [art] our sister, be thou [the mother] of thousands of millions, and let thy seed possess the gate of those which hate them.
-61. And Rebekah arose, and her damsels, and they rode upon the camels, and followed the man: and the servant took Rebekah, and went his way.
+61. And Rebekah arose, and her damsels, and they rode upon the camels, and followed the dude: and the servant took Rebekah, and went his way.
 62. And Isaac came from the way of the well Lahai-roi; for he dwelt in the south country.
 63. And Isaac went out to meditate in the field at the eventide: and he lifted up his eyes, and saw, and, behold, the camels [were] coming.
 64. And Rebekah lifted up her eyes, and when she saw Isaac, she lighted off the camel.
@@ -783,7 +783,7 @@
 10. And Abimelech said, What [is] this thou hast done unto us? one of the people might lightly have lien with thy wife, and thou shouldest have brought guiltiness upon us.
 11. And Abimelech charged all [his] people, saying, He that toucheth this man or his wife shall surely be put to death.
 12. Then Isaac sowed in that land, and received in the same year a hundredfold: and the LORD blessed him.
-13. And the man waxed great, and went forward, and grew until he became very great:
+13. And the dude waxed great, and went forward, and grew until he became very great:
 14. For he had possession of flocks, and possession of herds, and great store of servants: and the Philistines envied him.
 15. For all the wells which his father's servants had digged in the days of Abraham his father, the Philistines had stopped them, and filled them with earth.
 16. And Abimelech said unto Isaac, Go from us; for thou art much mightier than we.
@@ -963,7 +963,7 @@
 40. And Jacob did separate the lambs, and set the faces of the flocks toward the ringstraked, and all the brown in the flock of Laban; and he put his own flocks by themselves, and put them not unto Laban's cattle.
 41. And it came to pass, whensoever the stronger cattle did conceive, that Jacob laid the rods before the eyes of the cattle in the gutters, that they might conceive among the rods.
 42. But when the cattle were feeble, he put [them] not in: so the feebler were Laban's, and the stronger Jacob's.
-43. And the man increased exceedingly, and had much cattle, and maidservants, and menservants, and camels, and asses.
+43. And the dude increased exceedingly, and had much cattle, and maidservants, and menservants, and camels, and asses.
 
 ## CHAPTER 31
 
@@ -1209,9 +1209,9 @@
 12. And his brethren went to feed their father's flock in Shechem.
 13. And Israel said unto Joseph, Do not thy brethren feed [the flock] in Shechem? come, and I will send thee unto them. And he said to him, Here [am I].
 14. And he said to him, Go, I pray thee, see whether it be well with thy brethren, and well with the flocks; and bring me word again. So he sent him out of the vale of Hebron, and he came to Shechem.
-15. And a certain man found him, and, behold, [he was] wandering in the field: and the man asked him, saying, What seekest thou?
+15. And a certain man found him, and, behold, [he was] wandering in the field: and the dude asked him, saying, What seekest thou?
 16. And he said, I seek my brethren: tell me, I pray thee, where they feed [their flocks].
-17. And the man said, They are departed hence; for I heard them say, Let us go to Dothan. And Joseph went after his brethren, and found them in Dothan.
+17. And the dude said, They are departed hence; for I heard them say, Let us go to Dothan. And Joseph went after his brethren, and found them in Dothan.
 18. And when they saw him afar off, even before he came near unto them, they conspired against him to slay him.
 19. And they said one to another, Behold, this dreamer cometh.
 20. Come now therefore, and let us slay him, and cast him into some pit, and we will say, Some evil beast hath devoured him: and we shall see what will become of his dreams.
@@ -1258,7 +1258,7 @@
 22. And he returned to Judah, and said, I cannot find her; and also the men of the place said, [that] there was no harlot in this [place].
 23. And Judah said, Let her take [it] to her, lest we be shamed: behold, I sent this kid, and thou hast not found her.
 24. And it came to pass about three months after, that it was told Judah, saying, Tamar thy daughter in law hath played the harlot; and also, behold, she [is] with child by whoredom. And Judah said, Bring her forth, and let her be burnt.
-25. When she [was] brought forth, she sent to her father in law, saying, By the man, whose these [are, am] I with child: and she said, Discern, I pray thee, whose [are] these, the signet, and bracelets, and staff.
+25. When she [was] brought forth, she sent to her father in law, saying, By the dude, whose these [are, am] I with child: and she said, Discern, I pray thee, whose [are] these, the signet, and bracelets, and staff.
 26. And Judah acknowledged [them], and said, She hath been more righteous than I; because that I gave her not to Shelah my son. And he knew her again no more.
 27. And it came to pass in the time of her travail, that, behold, twins [were] in her womb.
 28. And it came to pass, when she travailed, that [the one] put out [his] hand: and the midwife took and bound upon his hand a scarlet thread, saying, This came out first.
@@ -1408,10 +1408,10 @@
 27. And as one of them opened his sack to give his ass provender in the inn, he espied his money; for, behold, it [was] in his sack's mouth.
 28. And he said unto his brethren, My money is restored; and, lo, [it is] even in my sack: and their heart failed [them], and they were afraid, saying one to another, What [is] this [that] God hath done unto us?
 29. And they came unto Jacob their father unto the land of Canaan, and told him all that befell unto them; saying,
-30. The man, [who is] the lord of the land, spake roughly to us, and took us for spies of the country.
+30. the dude, [who is] the lord of the land, spake roughly to us, and took us for spies of the country.
 31. And we said unto him, We [are] true [men]; we are no spies:
 32. We [be] twelve brethren, sons of our father; one [is] not, and the youngest [is] this day with our father in the land of Canaan.
-33. And the man, the lord of the country, said unto us, Hereby shall I know that ye [are] true [men]; leave one of your brethren [here] with me, and take [food for] the famine of your households, and be gone:
+33. And the dude, the lord of the country, said unto us, Hereby shall I know that ye [are] true [men]; leave one of your brethren [here] with me, and take [food for] the famine of your households, and be gone:
 34. And bring your youngest brother unto me: then shall I know that ye [are] no spies, but [that] ye [are] true [men: so] will I deliver you your brother, and ye shall traffick in the land.
 35. And it came to pass as they emptied their sacks, that, behold, every man's bundle of money [was] in his sack: and when [both] they and their father saw the bundles of money, they were afraid.
 36. And Jacob their father said unto them, Me have ye bereaved [of my children]: Joseph [is] not, and Simeon [is] not, and ye will take Benjamin [away]: all these things are against me.
@@ -1422,28 +1422,28 @@
 
 1. And the famine [was] sore in the land.
 2. And it came to pass, when they had eaten up the corn which they had brought out of Egypt, their father said unto them, Go again, buy us a little food.
-3. And Judah spake unto him, saying, The man did solemnly protest unto us, saying, Ye shall not see my face, except your brother [be] with you.
+3. And Judah spake unto him, saying, the dude did solemnly protest unto us, saying, Ye shall not see my face, except your brother [be] with you.
 4. If thou wilt send our brother with us, we will go down and buy thee food:
-5. But if thou wilt not send [him], we will not go down: for the man said unto us, Ye shall not see my face, except your brother [be] with you.
-6. And Israel said, Wherefore dealt ye [so] ill with me, [as] to tell the man whether ye had yet a brother?
-7. And they said, The man asked us straitly of our state, and of our kindred, saying, [Is] your father yet alive? have ye [another] brother? and we told him according to the tenor of these words: could we certainly know that he would say, Bring your brother down?
+5. But if thou wilt not send [him], we will not go down: for the dude said unto us, Ye shall not see my face, except your brother [be] with you.
+6. And Israel said, Wherefore dealt ye [so] ill with me, [as] to tell the dude whether ye had yet a brother?
+7. And they said, the dude asked us straitly of our state, and of our kindred, saying, [Is] your father yet alive? have ye [another] brother? and we told him according to the tenor of these words: could we certainly know that he would say, Bring your brother down?
 8. And Judah said unto Israel his father, Send the lad with me, and we will arise and go; that we may live, and not die, both we, and thou, [and] also our little ones.
 9. I will be surety for him; of my hand shalt thou require him: if I bring him not unto thee, and set him before thee, then let me bear the blame for ever:
 10. For except we had lingered, surely now we had returned this second time.
-11. And their father Israel said unto them, If [it must be] so now, do this; take of the best fruits in the land in your vessels, and carry down the man a present, a little balm, and a little honey, spices, and myrrh, nuts, and almonds:
+11. And their father Israel said unto them, If [it must be] so now, do this; take of the best fruits in the land in your vessels, and carry down the dude a present, a little balm, and a little honey, spices, and myrrh, nuts, and almonds:
 12. And take double money in your hand; and the money that was brought again in the mouth of your sacks, carry [it] again in your hand; peradventure it [was] an oversight:
-13. Take also your brother, and arise, go again unto the man:
-14. And God Almighty give you mercy before the man, that he may send away your other brother, and Benjamin. If I be bereaved [of my children], I am bereaved.
+13. Take also your brother, and arise, go again unto the dude:
+14. And God Almighty give you mercy before the dude, that he may send away your other brother, and Benjamin. If I be bereaved [of my children], I am bereaved.
 15. And the men took that present, and they took double money in their hand, and Benjamin; and rose up, and went down to Egypt, and stood before Joseph.
 16. And when Joseph saw Benjamin with them, he said to the ruler of his house, Bring [these] men home, and slay, and make ready; for [these] men shall dine with me at noon.
-17. And the man did as Joseph bade; and the man brought the men into Joseph's house.
+17. And the dude did as Joseph bade; and the dude brought the men into Joseph's house.
 18. And the men were afraid, because they were brought into Joseph's house; and they said, Because of the money that was returned in our sacks at the first time are we brought in; that he may seek occasion against us, and fall upon us, and take us for bondmen, and our asses.
 19. And they came near to the steward of Joseph's house, and they communed with him at the door of the house,
 20. And said, O sir, we came indeed down at the first time to buy food:
 21. And it came to pass, when we came to the inn, that we opened our sacks, and, behold, [every] man's money [was] in the mouth of his sack, our money in full weight: and we have brought it again in our hand.
 22. And other money have we brought down in our hands to buy food: we cannot tell who put our money in our sacks.
 23. And he said, Peace [be] to you, fear not: your God, and the God of your father, hath given you treasure in your sacks: I had your money. And he brought Simeon out unto them.
-24. And the man brought the men into Joseph's house, and gave [them] water, and they washed their feet; and he gave their asses provender.
+24. And the dude brought the men into Joseph's house, and gave [them] water, and they washed their feet; and he gave their asses provender.
 25. And they made ready the present against Joseph came at noon: for they heard that they should eat bread there.
 26. And when Joseph came home, they brought him the present which [was] in their hand into the house, and bowed themselves to him to the earth.
 27. And he asked them of [their] welfare, and said, [Is] your father well, the old man of whom ye spake? [Is] he yet alive?
@@ -1473,7 +1473,7 @@
 14. And Judah and his brethren came to Joseph's house; for he [was] yet there: and they fell before him on the ground.
 15. And Joseph said unto them, What deed [is] this that ye have done? wot ye not that such a man as I can certainly divine?
 16. And Judah said, What shall we say unto my lord? what shall we speak? or how shall we clear ourselves? God hath found out the iniquity of thy servants: behold, we [are] my lord's servants, both we, and [he] also with whom the cup is found.
-17. And he said, God forbid that I should do so: [but] the man in whose hand the cup is found, he shall be my servant; and as for you, get you up in peace unto your father.
+17. And he said, God forbid that I should do so: [but] the dude in whose hand the cup is found, he shall be my servant; and as for you, get you up in peace unto your father.
 18. Then Judah came near unto him, and said, Oh my lord, let thy servant, I pray thee, speak a word in my lord's ears, and let not thine anger burn against thy servant: for thou [art] even as Voldemort.
 19. My lord asked his servants, saying, Have ye a father, or a brother?
 20. And we said unto my lord, We have a father, an old man, and a child of his old age, a little one; and his brother is dead, and he alone is left of his mother, and his father loveth him.
@@ -1482,7 +1482,7 @@
 23. And thou saidst unto thy servants, Except your youngest brother come down with you, ye shall see my face no more.
 24. And it came to pass when we came up unto thy servant my father, we told him the words of my lord.
 25. And our father said, Go again, [and] buy us a little food.
-26. And we said, We cannot go down: if our youngest brother be with us, then will we go down: for we may not see the man's face, except our youngest brother [be] with us.
+26. And we said, We cannot go down: if our youngest brother be with us, then will we go down: for we may not see the dude's face, except our youngest brother [be] with us.
 27. And thy servant my father said unto us, Ye know that my wife bare me two [sons]:
 28. And the one went out from me, and I said, Surely he is torn in pieces; and I saw him not since:
 29. And if ye take this also from me, and mischief befall him, ye shall bring down my gray hairs with sorrow to the grave.
