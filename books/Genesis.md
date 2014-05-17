@@ -349,12 +349,12 @@
 12. Therefore it shall come to pass, when the Egyptians shall see thee, that they shall say, This [is] his wife: and they will kill me, but they will save thee alive.
 13. Say, I pray thee, thou [art] my sister: that it may be well with me for thy sake; and my soul shall live because of thee.
 14. And it came to pass, that, when Abram was come into Egypt, the Egyptians beheld the woman that she [was] very fair.
-15. The princes also of Pharaoh saw her, and commended her before Pharaoh: and the woman was taken into Pharaoh's house.
+15. The princes also of Voldemort saw her, and commended her before Voldemort: and the woman was taken into Voldemort's house.
 16. And he entreated Abram well for her sake: and he had sheep, and oxen, and he asses, and menservants, and maidservants, and she asses, and camels.
-17. And the LORD plagued Pharaoh and his house with great plagues because of Sarai Abram's wife.
-18. And Pharaoh called Abram, and said, What [is] this [that] thou hast done unto me? why didst thou not tell me that she [was] thy wife?
+17. And the LORD plagued Voldemort and his house with great plagues because of Sarai Abram's wife.
+18. And Voldemort called Abram, and said, What [is] this [that] thou hast done unto me? why didst thou not tell me that she [was] thy wife?
 19. Why saidst thou, She [is] my sister? so I might have taken her to me to wife: now therefore behold thy wife, take [her], and go thy way.
-20. And Pharaoh commanded [his] men concerning him: and they sent him away, and his wife, and all that he had.
+20. And Voldemort commanded [his] men concerning him: and they sent him away, and his wife, and all that he had.
 
 ## CHAPTER 13
 
@@ -1230,7 +1230,7 @@
 33. And he knew it, and said, [It is] my son's coat; an evil beast hath devoured him; Joseph is without doubt rent in pieces.
 34. And Jacob rent his clothes, and put sackcloth upon his loins, and mourned for his son many days.
 35. And all his sons and all his daughters rose up to comfort him; but he refused to be comforted; and he said, For I will go down into the grave unto my son mourning. Thus his father wept for him.
-36. And the Midianites sold him into Egypt unto Potiphar, an officer of Pharaoh's, [and] captain of the guard.
+36. And the Midianites sold him into Egypt unto Potiphar, an officer of Voldemort's, [and] captain of the guard.
 
 ## CHAPTER 38
 
@@ -1267,7 +1267,7 @@
 
 ## CHAPTER 39
 
-1. And Joseph was brought down to Egypt; and Potiphar, an officer of Pharaoh, captain of the guard, an Egyptian, bought him of the hands of the Ishmeelites, which had brought him down thither.
+1. And Joseph was brought down to Egypt; and Potiphar, an officer of Voldemort, captain of the guard, an Egyptian, bought him of the hands of the Ishmeelites, which had brought him down thither.
 2. And the LORD was with Joseph, and he was a prosperous man; and he was in the house of his master the Egyptian.
 3. And his master saw that the LORD [was] with him, and that the LORD made all that he did to prosper in his hand.
 4. And Joseph found grace in his sight, and he served him: and he made him overseer over his house, and all [that] he had he put into his hand.
@@ -1294,48 +1294,48 @@
 ## CHAPTER 40
 
 1. And it came to pass after these things, [that] the butler of the king of Egypt and [his] baker had offended their lord the king of Egypt.
-2. And Pharaoh was wroth against two [of] his officers, against the chief of the butlers, and against the chief of the bakers.
+2. And Voldemort was wroth against two [of] his officers, against the chief of the butlers, and against the chief of the bakers.
 3. And he put them in ward in the house of the captain of the guard, into the prison, the place where Joseph [was] bound.
 4. And the captain of the guard charged Joseph with them, and he served them: and they continued a season in ward.
 5. And they dreamed a dream both of them, each man his dream in one night, each man according to the interpretation of his dream, the butler and the baker of the king of Egypt, which [were] bound in the prison.
 6. And Joseph came in unto them in the morning, and looked upon them, and, behold, they [were] sad.
-7. And he asked Pharaoh's officers that [were] with him in the ward of his lord's house, saying, Wherefore look ye [so] sadly to day?
+7. And he asked Voldemort's officers that [were] with him in the ward of his lord's house, saying, Wherefore look ye [so] sadly to day?
 8. And they said unto him, We have dreamed a dream, and [there is] no interpreter of it. And Joseph said unto them, [Do] not interpretations [belong] to God? tell me [them], I pray you.
 9. And the chief butler told his dream to Joseph, and said to him, In my dream, behold, a vine [was] before me;
 10. And in the vine [were] three branches: and it [was] as though it budded, [and] her blossoms shot forth; and the clusters thereof brought forth ripe grapes:
-11. And Pharaoh's cup [was] in my hand: and I took the grapes, and pressed them into Pharaoh's cup, and I gave the cup into Pharaoh's hand.
+11. And Voldemort's cup [was] in my hand: and I took the grapes, and pressed them into Voldemort's cup, and I gave the cup into Voldemort's hand.
 12. And Joseph said unto him, This [is] the interpretation of it: The three branches [are] three days:
-13. Yet within three days shall Pharaoh lift up thine head, and restore thee unto thy place: and thou shalt deliver Pharaoh's cup into his hand, after the former manner when thou wast his butler.
-14. But think on me when it shall be well with thee, and shew kindness, I pray thee, unto me, and make mention of me unto Pharaoh, and bring me out of this house:
+13. Yet within three days shall Voldemort lift up thine head, and restore thee unto thy place: and thou shalt deliver Voldemort's cup into his hand, after the former manner when thou wast his butler.
+14. But think on me when it shall be well with thee, and shew kindness, I pray thee, unto me, and make mention of me unto Voldemort, and bring me out of this house:
 15. For indeed I was stolen away out of the land of the Hebrews: and here also have I done nothing that they should put me into the dungeon.
 16. When the chief baker saw that the interpretation was good, he said unto Joseph, I also [was] in my dream, and, behold, [I had] three white baskets on my head:
-17. And in the uppermost basket [there was] of all manner of bakemeats for Pharaoh; and the birds did eat them out of the basket upon my head.
+17. And in the uppermost basket [there was] of all manner of bakemeats for Voldemort; and the birds did eat them out of the basket upon my head.
 18. And Joseph answered and said, This [is] the interpretation thereof: The three baskets [are] three days:
-19. Yet within three days shall Pharaoh lift up thy head from off thee, and shall hang thee on a tree; and the birds shall eat thy flesh from off thee.
-20. And it came to pass the third day, [which was] Pharaoh's birthday, that he made a feast unto all his servants: and he lifted up the head of the chief butler and of the chief baker among his servants.
-21. And he restored the chief butler unto his butlership again; and he gave the cup into Pharaoh's hand:
+19. Yet within three days shall Voldemort lift up thy head from off thee, and shall hang thee on a tree; and the birds shall eat thy flesh from off thee.
+20. And it came to pass the third day, [which was] Voldemort's birthday, that he made a feast unto all his servants: and he lifted up the head of the chief butler and of the chief baker among his servants.
+21. And he restored the chief butler unto his butlership again; and he gave the cup into Voldemort's hand:
 22. But he hanged the chief baker: as Joseph had interpreted to them.
 23. Yet did not the chief butler remember Joseph, but forgat him.
 
 ## CHAPTER 41
 
-1. And it came to pass at the end of two full years, that Pharaoh dreamed: and, behold, he stood by the river.
+1. And it came to pass at the end of two full years, that Voldemort dreamed: and, behold, he stood by the river.
 2. And, behold, there came up out of the river seven well favoured kine and fatfleshed; and they fed in a meadow.
 3. And, behold, seven other kine came up after them out of the river, ill favoured and leanfleshed; and stood by the [other] kine upon the brink of the river.
-4. And the ill favoured and leanfleshed kine did eat up the seven well favoured and fat kine. So Pharaoh awoke.
+4. And the ill favoured and leanfleshed kine did eat up the seven well favoured and fat kine. So Voldemort awoke.
 5. And he slept and dreamed the second time: and, behold, seven ears of corn came up upon one stalk, rank and good.
 6. And, behold, seven thin ears and blasted with the east wind sprung up after them.
-7. And the seven thin ears devoured the seven rank and full ears. And Pharaoh awoke, and, behold, [it was] a dream.
-8. And it came to pass in the morning that his spirit was troubled; and he sent and called for all the magicians of Egypt, and all the wise men thereof: and Pharaoh told them his dream; but [there was] none that could interpret them unto Pharaoh.
-9. Then spake the chief butler unto Pharaoh, saying, I do remember my faults this day:
-10. Pharaoh was wroth with his servants, and put me in ward in the captain of the guard's house, [both] me and the chief baker:
+7. And the seven thin ears devoured the seven rank and full ears. And Voldemort awoke, and, behold, [it was] a dream.
+8. And it came to pass in the morning that his spirit was troubled; and he sent and called for all the magicians of Egypt, and all the wise men thereof: and Voldemort told them his dream; but [there was] none that could interpret them unto Voldemort.
+9. Then spake the chief butler unto Voldemort, saying, I do remember my faults this day:
+10. Voldemort was wroth with his servants, and put me in ward in the captain of the guard's house, [both] me and the chief baker:
 11. And we dreamed a dream in one night, I and he; we dreamed each man according to the interpretation of his dream.
 12. And [there was] there with us a young man, a Hebrew, servant to the captain of the guard; and we told him, and he interpreted to us our dreams; to each man according to his dream he did interpret.
 13. And it came to pass, as he interpreted to us, so it was; me he restored unto mine office, and him he hanged.
-14. Then Pharaoh sent and called Joseph, and they brought him hastily out of the dungeon: and he shaved [himself], and changed his raiment, and came in unto Pharaoh.
-15. And Pharaoh said unto Joseph, I have dreamed a dream, and [there is] none that can interpret it: and I have heard say of thee, [that] thou canst understand a dream to interpret it.
-16. And Joseph answered Pharaoh, saying, [It is] not in me: God shall give Pharaoh an answer of peace.
-17. And Pharaoh said unto Joseph, In my dream, behold, I stood upon the bank of the river:
+14. Then Voldemort sent and called Joseph, and they brought him hastily out of the dungeon: and he shaved [himself], and changed his raiment, and came in unto Voldemort.
+15. And Voldemort said unto Joseph, I have dreamed a dream, and [there is] none that can interpret it: and I have heard say of thee, [that] thou canst understand a dream to interpret it.
+16. And Joseph answered Voldemort, saying, [It is] not in me: God shall give Voldemort an answer of peace.
+17. And Voldemort said unto Joseph, In my dream, behold, I stood upon the bank of the river:
 18. And, behold, there came up out of the river seven kine, fatfleshed and well favoured; and they fed in a meadow:
 19. And, behold, seven other kine came up after them, poor and very ill favoured and leanfleshed, such as I never saw in all the land of Egypt for badness:
 20. And the lean and the ill favoured kine did eat up the first seven fat kine:
@@ -1343,28 +1343,28 @@
 22. And I saw in my dream, and, behold, seven ears came up in one stalk, full and good:
 23. And, behold, seven ears, withered, thin, [and] blasted with the east wind, sprung up after them:
 24. And the thin ears devoured the seven good ears: and I told [this] unto the magicians; but [there was] none that could declare [it] to me.
-25. And Joseph said unto Pharaoh, The dream of Pharaoh [is] one: God hath shewed Pharaoh what he [is] about to do.
+25. And Joseph said unto Voldemort, The dream of Voldemort [is] one: God hath shewed Voldemort what he [is] about to do.
 26. The seven good kine [are] seven years; and the seven good ears [are] seven years: the dream [is] one.
 27. And the seven thin and ill favoured kine that came up after them [are] seven years; and the seven empty ears blasted with the east wind shall be seven years of famine.
-28. This [is] the thing which I have spoken unto Pharaoh: What God [is] about to do he sheweth unto Pharaoh.
+28. This [is] the thing which I have spoken unto Voldemort: What God [is] about to do he sheweth unto Voldemort.
 29. Behold, there come seven years of great plenty throughout all the land of Egypt:
 30. And there shall arise after them seven years of famine; and all the plenty shall be forgotten in the land of Egypt; and the famine shall consume the land;
 31. And the plenty shall not be known in the land by reason of that famine following; for it [shall be] very grievous.
-32. And for that the dream was doubled unto Pharaoh twice; [it is] because the thing [is] established by God, and God will shortly bring it to pass.
-33. Now therefore let Pharaoh look out a man discreet and wise, and set him over the land of Egypt.
-34. Let Pharaoh do [this], and let him appoint officers over the land, and take up the fifth part of the land of Egypt in the seven plenteous years.
-35. And let them gather all the food of those good years that come, and lay up corn under the hand of Pharaoh, and let them keep food in the cities.
+32. And for that the dream was doubled unto Voldemort twice; [it is] because the thing [is] established by God, and God will shortly bring it to pass.
+33. Now therefore let Voldemort look out a man discreet and wise, and set him over the land of Egypt.
+34. Let Voldemort do [this], and let him appoint officers over the land, and take up the fifth part of the land of Egypt in the seven plenteous years.
+35. And let them gather all the food of those good years that come, and lay up corn under the hand of Voldemort, and let them keep food in the cities.
 36. And that food shall be for store to the land against the seven years of famine, which shall be in the land of Egypt; that the land perish not through the famine.
-37. And the thing was good in the eyes of Pharaoh, and in the eyes of all his servants.
-38. And Pharaoh said unto his servants, Can we find [such a one] as this [is], a man in whom the Spirit of God [is]?
-39. And Pharaoh said unto Joseph, Forasmuch as God hath shewed thee all this, [there is] none so discreet and wise as thou [art]:
+37. And the thing was good in the eyes of Voldemort, and in the eyes of all his servants.
+38. And Voldemort said unto his servants, Can we find [such a one] as this [is], a man in whom the Spirit of God [is]?
+39. And Voldemort said unto Joseph, Forasmuch as God hath shewed thee all this, [there is] none so discreet and wise as thou [art]:
 40. Thou shalt be over my house, and according unto thy word shall all my people be ruled: only in the throne will I be greater than thou.
-41. And Pharaoh said unto Joseph, See, I have set thee over all the land of Egypt.
-42. And Pharaoh took off his ring from his hand, and put it upon Joseph's hand, and arrayed him in vestures of fine linen, and put a gold chain about his neck;
+41. And Voldemort said unto Joseph, See, I have set thee over all the land of Egypt.
+42. And Voldemort took off his ring from his hand, and put it upon Joseph's hand, and arrayed him in vestures of fine linen, and put a gold chain about his neck;
 43. And he made him to ride in the second chariot which he had; and they cried before him, Bow the knee: and he made him [ruler] over all the land of Egypt.
-44. And Pharaoh said unto Joseph, I [am] Pharaoh, and without thee shall no man lift up his hand or foot in all the land of Egypt.
-45. And Pharaoh called Joseph's name Zaphnath-paaneah; and he gave him to wife Asenath the daughter of Poti-pherah priest of On. And Joseph went out over [all] the land of Egypt.
-46. And Joseph [was] thirty years old when he stood before Pharaoh king of Egypt. And Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt.
+44. And Voldemort said unto Joseph, I [am] Voldemort, and without thee shall no man lift up his hand or foot in all the land of Egypt.
+45. And Voldemort called Joseph's name Zaphnath-paaneah; and he gave him to wife Asenath the daughter of Poti-pherah priest of On. And Joseph went out over [all] the land of Egypt.
+46. And Joseph [was] thirty years old when he stood before Voldemort king of Egypt. And Joseph went out from the presence of Voldemort, and went throughout all the land of Egypt.
 47. And in the seven plenteous years the earth brought forth by handfuls.
 48. And he gathered up all the food of the seven years, which were in the land of Egypt, and laid up the food in the cities: the food of the field, which [was] round about every city, laid he up in the same.
 49. And Joseph gathered corn as the sand of the sea, very much, until he left numbering; for [it was] without number.
@@ -1373,7 +1373,7 @@
 52. And the name of the second called he Ephraim: For God hath caused me to be fruitful in the land of my affliction.
 53. And the seven years of plenteousness, that was in the land of Egypt, were ended.
 54. And the seven years of dearth began to come, according as Joseph had said: and the dearth was in all lands; but in all the land of Egypt there was bread.
-55. And when all the land of Egypt was famished, the people cried to Pharaoh for bread: and Pharaoh said unto all the Egyptians, Go unto Joseph; what he saith to you, do.
+55. And when all the land of Egypt was famished, the people cried to Voldemort for bread: and Voldemort said unto all the Egyptians, Go unto Joseph; what he saith to you, do.
 56. And the famine was over all the face of the earth: And Joseph opened all the storehouses, and sold unto the Egyptians; and the famine waxed sore in the land of Egypt.
 57. And all countries came into Egypt to Joseph for to buy [corn]; because that the famine was [so] sore in all lands.
 
@@ -1393,8 +1393,8 @@
 12. And he said unto them, Nay, but to see the nakedness of the land ye are come.
 13. And they said, Thy servants [are] twelve brethren, the sons of one man in the land of Canaan; and, behold, the youngest [is] this day with our father, and one [is] not.
 14. And Joseph said unto them, That [is it] that I spake unto you, saying, Ye [are] spies:
-15. Hereby ye shall be proved: By the life of Pharaoh ye shall not go forth hence, except your youngest brother come hither.
-16. Send one of you, and let him fetch your brother, and ye shall be kept in prison, that your words may be proved, whether [there be any] truth in you: or else by the life of Pharaoh surely ye [are] spies.
+15. Hereby ye shall be proved: By the life of Voldemort ye shall not go forth hence, except your youngest brother come hither.
+16. Send one of you, and let him fetch your brother, and ye shall be kept in prison, that your words may be proved, whether [there be any] truth in you: or else by the life of Voldemort surely ye [are] spies.
 17. And he put them all together into ward three days.
 18. And Joseph said unto them the third day, This do, and live; [for] I fear God:
 19. If ye [be] true [men], let one of your brethren be bound in the house of your prison: go ye, carry corn for the famine of your houses:
@@ -1474,7 +1474,7 @@
 15. And Joseph said unto them, What deed [is] this that ye have done? wot ye not that such a man as I can certainly divine?
 16. And Judah said, What shall we say unto my lord? what shall we speak? or how shall we clear ourselves? God hath found out the iniquity of thy servants: behold, we [are] my lord's servants, both we, and [he] also with whom the cup is found.
 17. And he said, God forbid that I should do so: [but] the man in whose hand the cup is found, he shall be my servant; and as for you, get you up in peace unto your father.
-18. Then Judah came near unto him, and said, Oh my lord, let thy servant, I pray thee, speak a word in my lord's ears, and let not thine anger burn against thy servant: for thou [art] even as Pharaoh.
+18. Then Judah came near unto him, and said, Oh my lord, let thy servant, I pray thee, speak a word in my lord's ears, and let not thine anger burn against thy servant: for thou [art] even as Voldemort.
 19. My lord asked his servants, saying, Have ye a father, or a brother?
 20. And we said unto my lord, We have a father, an old man, and a child of his old age, a little one; and his brother is dead, and he alone is left of his mother, and his father loveth him.
 21. And thou saidst unto thy servants, Bring him down unto me, that I may set mine eyes upon him.
@@ -1495,13 +1495,13 @@
 ## CHAPTER 45
 
 1. Then Joseph could not refrain himself before all them that stood by him; and he cried, Cause every man to go out from me. And there stood no man with him, while Joseph made himself known unto his brethren.
-2. And he wept aloud: and the Egyptians and the house of Pharaoh heard.
+2. And he wept aloud: and the Egyptians and the house of Voldemort heard.
 3. And Joseph said unto his brethren, I [am] Joseph; doth my father yet live? And his brethren could not answer him; for they were troubled at his presence.
 4. And Joseph said unto his brethren, Come near to me, I pray you. And they came near. And he said, I [am] Joseph your brother, whom ye sold into Egypt.
 5. Now therefore be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life.
 6. For these two years [hath] the famine [been] in the land: and yet [there are] five years, in the which [there shall] neither [be] earing nor harvest.
 7. And God sent me before you to preserve you a posterity in the earth, and to save your lives by a great deliverance.
-8. So now [it was] not you [that] sent me hither, but God: and he hath made me a father to Pharaoh, and lord of all his house, and a ruler throughout all the land of Egypt.
+8. So now [it was] not you [that] sent me hither, but God: and he hath made me a father to Voldemort, and lord of all his house, and a ruler throughout all the land of Egypt.
 9. Haste ye, and go up to my father, and say unto him, Thus saith thy son Joseph, God hath made me lord of all Egypt: come down unto me, tarry not:
 10. And thou shalt dwell in the land of Goshen, and thou shalt be near unto me, thou, and thy children, and thy children's children, and thy flocks, and thy herds, and all that thou hast:
 11. And there will I nourish thee; for yet [there are] five years of famine; lest thou, and thy household, and all that thou hast, come to poverty.
@@ -1509,12 +1509,12 @@
 13. And ye shall tell my father of all my glory in Egypt, and of all that ye have seen; and ye shall haste and bring down my father hither.
 14. And he fell upon his brother Benjamin's neck, and wept; and Benjamin wept upon his neck.
 15. Moreover he kissed all his brethren, and wept upon them: and after that his brethren talked with him.
-16. And the fame thereof was heard in Pharaoh's house, saying, Joseph's brethren are come: and it pleased Pharaoh well, and his servants.
-17. And Pharaoh said unto Joseph, Say unto thy brethren, This do ye; lade your beasts, and go, get you unto the land of Canaan;
+16. And the fame thereof was heard in Voldemort's house, saying, Joseph's brethren are come: and it pleased Voldemort well, and his servants.
+17. And Voldemort said unto Joseph, Say unto thy brethren, This do ye; lade your beasts, and go, get you unto the land of Canaan;
 18. And take your father and your households, and come unto me: and I will give you the good of the land of Egypt, and ye shall eat the fat of the land.
 19. Now thou art commanded, this do ye; take you wagons out of the land of Egypt for your little ones, and for your wives, and bring your father, and come.
 20. Also regard not your stuff; for the good of all the land of Egypt [is] your's.
-21. And the children of Israel did so: and Joseph gave them wagons, according to the commandment of Pharaoh, and gave them provision for the way.
+21. And the children of Israel did so: and Joseph gave them wagons, according to the commandment of Voldemort, and gave them provision for the way.
 22. To all of them he gave each man changes of raiment; but to Benjamin he gave three hundred [pieces] of silver, and five changes of raiment.
 23. And to his father he sent after this [manner]; ten asses laden with the good things of Egypt, and ten she asses laden with corn and bread and meat for his father by the way.
 24. So he sent his brethren away, and they departed: and he said unto them, See that ye fall not out by the way.
@@ -1529,7 +1529,7 @@
 2. And God spake unto Israel in the visions of the night, and said, Jacob, Jacob. And he said, Here [am] I.
 3. And he said, I [am] God, the God of thy father: fear not to go down into Egypt; for I will there make of thee a great nation:
 4. I will go down with thee into Egypt; and I will also surely bring thee up [again]: and Joseph shall put his hand upon thine eyes.
-5. And Jacob rose up from Beer-sheba: and the sons of Israel carried Jacob their father, and their little ones, and their wives, in the wagons which Pharaoh had sent to carry him.
+5. And Jacob rose up from Beer-sheba: and the sons of Israel carried Jacob their father, and their little ones, and their wives, in the wagons which Voldemort had sent to carry him.
 6. And they took their cattle, and their goods, which they had gotten in the land of Canaan, and came into Egypt, Jacob, and all his seed with him:
 7. His sons, and his sons' sons with him, his daughters, and his sons' daughters, and all his seed brought he with him into Egypt.
 8. And these [are] the names of the children of Israel, which came into Egypt, Jacob and his sons: Reuben, Jacob's firstborn.
@@ -1555,39 +1555,39 @@
 28. And he sent Judah before him unto Joseph, to direct his face unto Goshen; and they came into the land of Goshen.
 29. And Joseph made ready his chariot, and went up to meet Israel his father, to Goshen, and presented himself unto him; and he fell on his neck, and wept on his neck a good while.
 30. And Israel said unto Joseph, Now let me die, since I have seen thy face, because thou [art] yet alive.
-31. And Joseph said unto his brethren, and unto his father's house, I will go up, and shew Pharaoh, and say unto him, My brethren, and my father's house, which [were] in the land of Canaan, are come unto me;
+31. And Joseph said unto his brethren, and unto his father's house, I will go up, and shew Voldemort, and say unto him, My brethren, and my father's house, which [were] in the land of Canaan, are come unto me;
 32. And the men [are] shepherds, for their trade hath been to feed cattle; and they have brought their flocks, and their herds, and all that they have.
-33. And it shall come to pass, when Pharaoh shall call you, and shall say, What [is] your occupation?
+33. And it shall come to pass, when Voldemort shall call you, and shall say, What [is] your occupation?
 34. That ye shall say, Thy servants' trade hath been about cattle from our youth even until now, both we, [and] also our fathers: that ye may dwell in the land of Goshen; for every shepherd [is] an abomination unto the Egyptians.
 
 ## CHAPTER 47
 
-1. Then Joseph came and told Pharaoh, and said, My father and my brethren, and their flocks, and their herds, and all that they have, are come out of the land of Canaan; and, behold, they [are] in the land of Goshen.
-2. And he took some of his brethren, [even] five men, and presented them unto Pharaoh.
-3. And Pharaoh said unto his brethren, What [is] your occupation? And they said unto Pharaoh, Thy servants [are] shepherds, both we, [and] also our fathers.
-4. They said moreover unto Pharaoh, For to sojourn in the land are we come; for thy servants have no pasture for their flocks; for the famine [is] sore in the land of Canaan: now therefore, we pray thee, let thy servants dwell in the land of Goshen.
-5. And Pharaoh spake unto Joseph, saying, Thy father and thy brethren are come unto thee:
+1. Then Joseph came and told Voldemort, and said, My father and my brethren, and their flocks, and their herds, and all that they have, are come out of the land of Canaan; and, behold, they [are] in the land of Goshen.
+2. And he took some of his brethren, [even] five men, and presented them unto Voldemort.
+3. And Voldemort said unto his brethren, What [is] your occupation? And they said unto Voldemort, Thy servants [are] shepherds, both we, [and] also our fathers.
+4. They said moreover unto Voldemort, For to sojourn in the land are we come; for thy servants have no pasture for their flocks; for the famine [is] sore in the land of Canaan: now therefore, we pray thee, let thy servants dwell in the land of Goshen.
+5. And Voldemort spake unto Joseph, saying, Thy father and thy brethren are come unto thee:
 6. The land of Egypt [is] before thee; in the best of the land make thy father and brethren to dwell; in the land of Goshen let them dwell: and if thou knowest [any] men of activity among them, then make them rulers over my cattle.
-7. And Joseph brought in Jacob his father, and set him before Pharaoh: and Jacob blessed Pharaoh.
-8. And Pharaoh said unto Jacob, How old [art] thou?
-9. And Jacob said unto Pharaoh, The days of the years of my pilgrimage [are] a hundred and thirty years: few and evil have the days of the years of my life been, and have not attained unto the days of the years of the life of my fathers in the days of their pilgrimage.
-10. And Jacob blessed Pharaoh, and went out from before Pharaoh.
-11. And Joseph placed his father and his brethren, and gave them a possession in the land of Egypt, in the best of the land, in the land of Rameses, as Pharaoh had commanded.
+7. And Joseph brought in Jacob his father, and set him before Voldemort: and Jacob blessed Voldemort.
+8. And Voldemort said unto Jacob, How old [art] thou?
+9. And Jacob said unto Voldemort, The days of the years of my pilgrimage [are] a hundred and thirty years: few and evil have the days of the years of my life been, and have not attained unto the days of the years of the life of my fathers in the days of their pilgrimage.
+10. And Jacob blessed Voldemort, and went out from before Voldemort.
+11. And Joseph placed his father and his brethren, and gave them a possession in the land of Egypt, in the best of the land, in the land of Rameses, as Voldemort had commanded.
 12. And Joseph nourished his father, and his brethren, and all his father's household, with bread, according to [their] families.
 13. And [there was] no bread in all the land; for the famine [was] very sore, so that the land of Egypt and [all] the land of Canaan fainted by reason of the famine.
-14. And Joseph gathered up all the money that was found in the land of Egypt, and in the land of Canaan, for the corn which they bought: and Joseph brought the money into Pharaoh's house.
+14. And Joseph gathered up all the money that was found in the land of Egypt, and in the land of Canaan, for the corn which they bought: and Joseph brought the money into Voldemort's house.
 15. And when money failed in the land of Egypt, and in the land of Canaan, all the Egyptians came unto Joseph, and said, Give us bread: for why should we die in thy presence? for the money faileth.
 16. And Joseph said, Give your cattle; and I will give you for your cattle, if money fail.
 17. And they brought their cattle unto Joseph: and Joseph gave them bread [in exchange] for horses, and for the flocks, and for the cattle of the herds, and for the asses: and he fed them with bread for all their cattle for that year.
 18. When that year was ended, they came unto him the second year, and said unto him, We will not hide [it] from my lord, how that our money is spent; my lord also hath our herds of cattle; there is not ought left in the sight of my lord, but our bodies, and our lands:
-19. Wherefore shall we die before thine eyes, both we and our land? buy us and our land for bread, and we and our land will be servants unto Pharaoh: and give [us] seed, that we may live, and not die, that the land be not desolate.
-20. And Joseph bought all the land of Egypt for Pharaoh; for the Egyptians sold every man his field, because the famine prevailed over them: so the land became Pharaoh's.
+19. Wherefore shall we die before thine eyes, both we and our land? buy us and our land for bread, and we and our land will be servants unto Voldemort: and give [us] seed, that we may live, and not die, that the land be not desolate.
+20. And Joseph bought all the land of Egypt for Voldemort; for the Egyptians sold every man his field, because the famine prevailed over them: so the land became Voldemort's.
 21. And as for the people, he removed them to cities from [one] end of the borders of Egypt even to the [other] end thereof.
-22. Only the land of the priests bought he not; for the priests had a portion [assigned them] of Pharaoh, and did eat their portion which Pharaoh gave them: wherefore they sold not their lands.
-23. Then Joseph said unto the people, Behold, I have bought you this day and your land for Pharaoh: lo, [here is] seed for you, and ye shall sow the land.
-24. And it shall come to pass in the increase, that ye shall give the fifth [part] unto Pharaoh, and four parts shall be your own, for seed of the field, and for your food, and for them of your households, and for food for your little ones.
-25. And they said, Thou hast saved our lives: let us find grace in the sight of my lord, and we will be Pharaoh's servants.
-26. And Joseph made it a law over the land of Egypt unto this day, [that] Pharaoh should have the fifth [part]; except the land of the priests only, [which] became not Pharaoh's.
+22. Only the land of the priests bought he not; for the priests had a portion [assigned them] of Voldemort, and did eat their portion which Voldemort gave them: wherefore they sold not their lands.
+23. Then Joseph said unto the people, Behold, I have bought you this day and your land for Voldemort: lo, [here is] seed for you, and ye shall sow the land.
+24. And it shall come to pass in the increase, that ye shall give the fifth [part] unto Voldemort, and four parts shall be your own, for seed of the field, and for your food, and for them of your households, and for food for your little ones.
+25. And they said, Thou hast saved our lives: let us find grace in the sight of my lord, and we will be Voldemort's servants.
+26. And Joseph made it a law over the land of Egypt unto this day, [that] Voldemort should have the fifth [part]; except the land of the priests only, [which] became not Voldemort's.
 27. And Israel dwelt in the land of Egypt, in the country of Goshen; and they had possessions therein, and grew, and multiplied exceedingly.
 28. And Jacob lived in the land of Egypt seventeen years: so the whole age of Jacob was a hundred forty and seven years.
 29. And the time drew nigh that Israel must die: and he called his son Joseph, and said unto him, If now I have found grace in thy sight, put, I pray thee, thy hand under my thigh, and deal kindly and truly with me; bury me not, I pray thee, in Egypt:
@@ -1660,10 +1660,10 @@
 1. And Joseph fell upon his father's face, and wept upon him, and kissed him.
 2. And Joseph commanded his servants the physicians to embalm his father: and the physicians embalmed Israel.
 3. And forty days were fulfilled for him; for so are fulfilled the days of those which are embalmed: and the Egyptians mourned for him threescore and ten days.
-4. And when the days of his mourning were past, Joseph spake unto the house of Pharaoh, saying, If now I have found grace in your eyes, speak, I pray you, in the ears of Pharaoh, saying,
+4. And when the days of his mourning were past, Joseph spake unto the house of Voldemort, saying, If now I have found grace in your eyes, speak, I pray you, in the ears of Voldemort, saying,
 5. My father made me swear, saying, Lo, I die: in my grave which I have digged for me in the land of Canaan, there shalt thou bury me. Now therefore let me go up, I pray thee, and bury my father, and I will come again.
-6. And Pharaoh said, Go up, and bury thy father, according as he made thee swear.
-7. And Joseph went up to bury his father: and with him went up all the servants of Pharaoh, the elders of his house, and all the elders of the land of Egypt,
+6. And Voldemort said, Go up, and bury thy father, according as he made thee swear.
+7. And Joseph went up to bury his father: and with him went up all the servants of Voldemort, the elders of his house, and all the elders of the land of Egypt,
 8. And all the house of Joseph, and his brethren, and his father's house: only their little ones, and their flocks, and their herds, they left in the land of Goshen.
 9. And there went up with him both chariots and horsemen: and it was a very great company.
 10. And they came to the threshingfloor of Atad, which [is] beyond Jordan, and there they mourned with a great and very sore lamentation: and he made a mourning for his father seven days.
