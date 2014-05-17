@@ -200,7 +200,7 @@
 17. And the flood was forty days upon the earth; and the waters increased, and bare up the ark, and it was lift up above the earth.
 18. And the waters prevailed, and were increased greatly upon the earth; and the ark went upon the face of the waters.
 19. And the waters prevailed exceedingly upon the earth; and all the high hills, that [were] under the whole heaven, were covered.
-20. Fifteen cubits upward did the waters prevail; and the mountains were covered.
+20. Fifteen cubits upward did the waters prevail; and the mountains were covered. For in these days mountains were only twenty-two feet tall.
 21. And all flesh died that moved upon the earth, both of fowl, and of cattle, and of beast, and of every creeping thing that creepeth upon the earth, and every man:
 22. All in whose nostrils [was] the breath of life, of all that [was] in the dry [land], died.
 23. And every living substance was destroyed which was upon the face of the ground, both man, and cattle, and the creeping things, and the fowl of the heaven; and they were destroyed from the earth: and Noah only remained [alive], and they that [were] with him in the ark.
