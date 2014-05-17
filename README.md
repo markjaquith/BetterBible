@@ -15,9 +15,9 @@ Here are the goals of the BetterBible project:
 
 ***
 
-Current status:
+## Current Status
 
-*The book of Genesis is now open for pull requests*
+The book of Genesis is now open for pull requests!
 
 ***
 
