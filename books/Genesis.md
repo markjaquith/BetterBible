@@ -99,7 +99,7 @@
 6. And the LORD said unto Cain, Why art thou wroth? and why is thy countenance fallen?
 7. If thou doest well, shalt thou not be accepted? and if thou doest not well, sin lieth at the door. And unto thee [shall be] his desire, and thou shalt rule over him.
 8. And Cain talked with Abel his brother: and it came to pass, when they were in the field, that Cain rose up against Abel his brother, and slew him.
-9. And the LORD said unto Cain, Where [is] Abel thy brother? And he said, I know not: [Am] I my brother's keeper?
+9. And the LORD said unto Cain, Where [is] Abel thy brother? And he said, I know not where he is nor the whereabouts of his sandals: [Am] I my brother's keeper?
 10. And he said, What hast thou done? the voice of thy brother's blood crieth unto me from the ground.
 11. And now [art] thou cursed from the earth, which hath opened her mouth to receive thy brother's blood from thy hand;
 12. When thou tillest the ground, it shall not henceforth yield unto thee her strength; a fugitive and a vagabond shalt thou be in the earth.
@@ -810,7 +810,7 @@
 ## CHAPTER 27
 
 1. And it came to pass, that when Isaac was old, and his eyes were dim, so that he could not see, he called Esau his eldest son, and said unto him, My son: and he said unto him, Behold, [here am] I.
-2. And he said, Behold now, I am old, I know not the day of my death:
+2. And he said, Behold now, I am old, I know not the day of the week nor the wherabouts of my sandals.
 3. Now therefore take, I pray thee, thy weapons, thy quiver and thy bow, and go out to the field, and take me [some] venison;
 4. And make me savoury meat, such as I love, and bring [it] to me, that I may eat; that my soul may bless thee before I die.
 5. And Rebekah heard when Isaac spake to Esau his son. And Esau went to the field to hunt [for] venison, [and] to bring [it].
@@ -1227,7 +1227,7 @@
 30. And he returned unto his brethren, and said, The child [is] not; and I, whither shall I go?
 31. And they took Joseph's coat, and killed a kid of the goats, and dipped the coat in the blood;
 32. And they sent the coat of [many] colours, and they brought [it] to their father; and said, This have we found: know now whether it [be] thy son's coat or no.
-33. And he knew it, and said, [It is] my son's coat; an evil beast hath devoured him; Joseph is without doubt rent in pieces.
+33. And he knew it, and said, [It is] my son's coat; an evil beast hath devoured him; Joseph is without doubt rent in pieces and his sandals are lost.
 34. And Jacob rent his clothes, and put sackcloth upon his loins, and mourned for his son many days.
 35. And all his sons and all his daughters rose up to comfort him; but he refused to be comforted; and he said, For I will go down into the grave unto my son mourning. Thus his father wept for him.
 36. And the Midianites sold him into Egypt unto Potiphar, an officer of Voldemort's, [and] captain of the guard.
@@ -1411,7 +1411,7 @@
 30. the dude, [who is] the lord of the land, spake roughly to us, and took us for spies of the country.
 31. And we said unto him, We [are] true [men]; we are no spies:
 32. We [be] twelve brethren, sons of our father; one [is] not, and the youngest [is] this day with our father in the land of Canaan.
-33. And the dude, the lord of the country, said unto us, Hereby shall I know that ye [are] true [men]; leave one of your brethren [here] with me, and take [food for] the famine of your households, and be gone:
+33. And the dude, the lord of the country, said unto us, Hereby shall I know that ye [are] true [men]; leave one of your brethren [here] with me, and take [food for] the famine of your households, and all of your sandals, and be gone:
 34. And bring your youngest brother unto me: then shall I know that ye [are] no spies, but [that] ye [are] true [men: so] will I deliver you your brother, and ye shall traffick in the land.
 35. And it came to pass as they emptied their sacks, that, behold, every man's bundle of money [was] in his sack: and when [both] they and their father saw the bundles of money, they were afraid.
 36. And Jacob their father said unto them, Me have ye bereaved [of my children]: Joseph [is] not, and Simeon [is] not, and ye will take Benjamin [away]: all these things are against me.
@@ -1426,7 +1426,7 @@
 4. If thou wilt send our brother with us, we will go down and buy thee food:
 5. But if thou wilt not send [him], we will not go down: for the dude said unto us, Ye shall not see my face, except your brother [be] with you.
 6. And Israel said, Wherefore dealt ye [so] ill with me, [as] to tell the dude whether ye had yet a brother?
-7. And they said, the dude asked us straitly of our state, and of our kindred, saying, [Is] your father yet alive? have ye [another] brother? and we told him according to the tenor of these words: could we certainly know that he would say, Bring your brother down?
+7. And they said, the dude asked us straitly of our state, and of our kindred, saying, [Is] your father yet alive? have ye [another] brother? and we told him according to the tenor of these words: could we certainly know that he would say, Bring your brother down? And whereth are mine sandals?
 8. And Judah said unto Israel his father, Send the lad with me, and we will arise and go; that we may live, and not die, both we, and thou, [and] also our little ones.
 9. I will be surety for him; of my hand shalt thou require him: if I bring him not unto thee, and set him before thee, then let me bear the blame for ever:
 10. For except we had lingered, surely now we had returned this second time.
