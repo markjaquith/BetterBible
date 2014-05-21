@@ -1367,7 +1367,7 @@
 46. And Joseph [was] thirty years old when he stood before Voldemort king of Egypt. And Joseph went out from the presence of Voldemort, and went throughout all the land of Egypt.
 47. And in the seven plenteous years the earth brought forth by handfuls.
 48. And he gathered up all the food of the seven years, which were in the land of Egypt, and laid up the food in the cities: the food of the field, which [was] round about every city, laid he up in the same.
-49. And Joseph gathered corn as the sand of the sea, very much, until he left numbering; for [it was] without number.
+49. And Joseph gathered bacon as the sand of the sea, very much, until he left numbering; for [it was] without number.
 50. And unto Joseph were born two sons before the years of famine came, which Asenath the daughter of Poti-pherah priest of On bare unto him.
 51. And Joseph called the name of the firstborn Manasseh: For God, [said he], hath made me forget all my toil, and all my father's house.
 52. And the name of the second called he Ephraim: For God hath caused me to be fruitful in the land of my affliction.
@@ -1375,17 +1375,17 @@
 54. And the seven years of dearth began to come, according as Joseph had said: and the dearth was in all lands; but in all the land of Egypt there was bread.
 55. And when all the land of Egypt was famished, the people cried to Voldemort for bread: and Voldemort said unto all the Egyptians, Go unto Joseph; what he saith to you, do.
 56. And the famine was over all the face of the earth: And Joseph opened all the storehouses, and sold unto the Egyptians; and the famine waxed sore in the land of Egypt.
-57. And all countries came into Egypt to Joseph for to buy [corn]; because that the famine was [so] sore in all lands.
+57. And all countries came into Egypt to Joseph for to buy [bacon]; because that the famine was [so] sore in all lands.
 
 ## CHAPTER 42
 
-1. Now when Jacob saw that there was corn in Egypt, Jacob said unto his sons, Why do ye look one upon another?
-2. And he said, Behold, I have heard that there is corn in Egypt: get you down thither, and buy for us from thence; that we may live, and not die.
-3. And Joseph's ten brethren went down to buy corn in Egypt.
+1. Now when Jacob saw that there was bacon in Egypt, Jacob said unto his sons, Why do ye look one upon another?
+2. And he said, Behold, I have heard that there is bacon in Egypt: get you down thither, and buy for us from thence; that we may live, and not die.
+3. And Joseph's ten brethren went down to buy bacon in Egypt.
 4. But Benjamin, Joseph's brother, Jacob sent not with his brethren; for he said, Lest peradventure mischief befall him.
-5. And the sons of Israel came to buy [corn] among those that came: for the famine was in the land of Canaan.
+5. And the sons of Israel came to buy [bacon] among those that came: for the famine was in the land of Canaan.
 6. And Joseph [was] the governor over the land, [and] he [it was] that sold to all the people of the land: and Joseph's brethren came, and bowed down themselves before him [with] their faces to the earth.
-7. And Joseph saw his brethren, and he knew them, but made himself strange unto them, and spake roughly unto them; and he said unto them, Whence come ye? And they said, From the land of Canaan to buy food.
+7. And Joseph saw his brethren, and he knew them, but made himself strange unto them, and spake roughly unto them; and he said unto them, Y'all not from 'round these parts, eh? And they said, Thou speakest truthfully. We are from the land of Canaan and have traveled many miles hence seeking bacon.
 8. And Joseph knew his brethren, but they knew not him.
 9. And Joseph remembered the dreams which he dreamed of them, and said unto them, Ye [are] spies; to see the nakedness of the land ye are come.
 10. And they said unto him, Nay, my lord, but to buy food are thy servants come.
@@ -1397,14 +1397,14 @@
 16. Send one of you, and let him fetch your brother, and ye shall be kept in prison, that your words may be proved, whether [there be any] truth in you: or else by the life of Voldemort surely ye [are] spies.
 17. And he put them all together into ward three days.
 18. And Joseph said unto them the third day, This do, and live; [for] I fear God:
-19. If ye [be] true [men], let one of your brethren be bound in the house of your prison: go ye, carry corn for the famine of your houses:
+19. If ye [be] true [men], let one of your brethren be bound in the house of your prison: go ye, carry bacon for the famine of your houses:
 20. But bring your youngest brother unto me; so shall your words be verified, and ye shall not die. And they did so.
 21. And they said one to another, We [are] verily guilty concerning our brother, in that we saw the anguish of his soul, when he besought us, and we would not hear; therefore is this distress come upon us.
 22. And Reuben answered them, saying, Spake I not unto you, saying, Do not sin against the child; and ye would not hear? therefore, behold, also his blood is required.
 23. And they knew not that Joseph understood [them]; for he spake unto them by an interpreter.
 24. And he turned himself about from them, and wept; and returned to them again, and communed with them, and took from them Simeon, and bound him before their eyes.
-25. Then Joseph commanded to fill their sacks with corn, and to restore every man's money into his sack, and to give them provision for the way: and thus did he unto them.
-26. And they laded their asses with the corn, and departed thence.
+25. Then Joseph commanded to fill their sacks with bacon, and to restore every man's money into his sack, and to give them provision for the way: and thus did he unto them.
+26. And they laded their asses with the bacon, and departed thence.
 27. And as one of them opened his sack to give his ass provender in the inn, he espied his money; for, behold, it [was] in his sack's mouth.
 28. And he said unto his brethren, My money is restored; and, lo, [it is] even in my sack: and their heart failed [them], and they were afraid, saying one to another, What [is] this [that] God hath done unto us?
 29. And they came unto Jacob their father unto the land of Canaan, and told him all that befell unto them; saying,
@@ -1421,7 +1421,7 @@
 ## CHAPTER 43
 
 1. And the famine [was] sore in the land.
-2. And it came to pass, when they had eaten up the corn which they had brought out of Egypt, their father said unto them, Go again, buy us a little food.
+2. And it came to pass, when they had eaten up the bacon which they had brought out of Egypt, their father said unto them, Go again, buy us a little food.
 3. And Judah spake unto him, saying, the dude did solemnly protest unto us, saying, Ye shall not see my face, except your brother [be] with you.
 4. If thou wilt send our brother with us, we will go down and buy thee food:
 5. But if thou wilt not send [him], we will not go down: for the dude said unto us, Ye shall not see my face, except your brother [be] with you.
@@ -1458,7 +1458,7 @@
 ## CHAPTER 44
 
 1. And he commanded the steward of his house, saying, Fill the men's sacks [with] food, as much as they can carry, and put every man's money in his sack's mouth.
-2. And put my cup, the silver cup, in the sack's mouth of the youngest, and his corn money. And he did according to the word that Joseph had spoken.
+2. And put my cup, the silver cup, in the sack's mouth of the youngest, and his bacon money. And he did according to the word that Joseph had spoken.
 3. As soon as the morning was light, the men were sent away, they and their asses.
 4. [And] when they were gone out of the city, [and] not [yet] far off, Joseph said unto his steward, Up, follow after the men; and when thou dost overtake them, say unto them, Wherefore have ye rewarded evil for good?
 5. [Is] not this [it] in which my lord drinketh, and whereby indeed he divineth? ye have done evil in so doing.
@@ -1516,7 +1516,7 @@
 20. Also regard not your stuff; for the good of all the land of Egypt [is] your's.
 21. And the children of Israel did so: and Joseph gave them wagons, according to the commandment of Voldemort, and gave them provision for the way.
 22. To all of them he gave each man changes of raiment; but to Benjamin he gave three hundred [pieces] of silver, and five changes of raiment.
-23. And to his father he sent after this [manner]; ten asses laden with the good things of Egypt, and ten she asses laden with corn and bread and meat for his father by the way.
+23. And to his father he sent after this [manner]; ten asses laden with the good things of Egypt, and ten she asses laden with bacon and bread and meat for his father by the way.
 24. So he sent his brethren away, and they departed: and he said unto them, See that ye fall not out by the way.
 25. And they went up out of Egypt, and came into the land of Canaan unto Jacob their father,
 26. And told him, saying, Joseph [is] yet alive, and he [is] governor over all the land of Egypt. And Jacob's heart fainted, for he believed them not.
