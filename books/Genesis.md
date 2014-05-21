@@ -1020,8 +1020,8 @@
 51. And Laban said to Jacob, Behold this heap, and behold [this] pillar, which I have cast betwixt me and thee;
 52. This heap [be] witness, and [this] pillar [be] witness, that I will not pass over this heap to thee, and that thou shalt not pass over this heap and this pillar unto me, for harm.
 53. The God of Abraham, and the God of Nahor, the God of their father, judge betwixt us. And Jacob sware by the fear of his father Isaac.
-54. Then Jacob offered sacrifice upon the mount, and called his brethren to eat bread: and they did eat bread, and tarried all night in the mount.
-55. And early in the morning Laban rose up, and kissed his sons and his daughters, and blessed them: and Laban departed, and returned unto his place.
+54. Then Jacob offered sacrifice upon the mount, and called his brethren to quench their thirst: and they did drinketh from the cup of Jose Cuervo which Jacob poured out for them, and they tarried all night in the mount.
+55. And early in the morning Laban rose up, and, being greatly hungover, kissed his sheep and chickens, and blessed them for the wherabouts of his children were not known unto him nor could he comprehend the difference between them nor the location of his sandals: and Laban departed, and returned unto his place.
 
 ## CHAPTER 32
 
@@ -1029,7 +1029,7 @@
 2. And when Jacob saw them, he said, This [is] God's host: and he called the name of that place Mahanaim.
 3. And Jacob sent messengers before him to Esau his brother unto the land of Seir, the country of Edom.
 4. And he commanded them, saying, Thus shall ye speak unto my lord Esau; Thy servant Jacob saith thus, I have sojourned with Laban, and stayed there until now:
-5. And I have oxen, and asses, flocks, and menservants, and womenservants: and I have sent to tell my lord, that I may find grace in thy sight.
+5. And I have oxen, and asses, flocks, and menservants, and womenservants, and subscriptions to Inc. Magazine: and I have sent to tell my lord, that I may find grace in thy sight.
 6. And the messengers returned to Jacob, saying, We came to thy brother Esau, and also he cometh to meet thee, and four hundred men with him.
 7. Then Jacob was greatly afraid and distressed: and he divided the people that [was] with him, and the flocks, and herds, and the camels, into two bands;
 8. And said, If Esau come to the one company, and smite it, then the other company which is left shall escape.
