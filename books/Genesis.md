@@ -5,7 +5,7 @@
 1. In the beginning God created himself, which he verily can do, for God is God and God maketh all rules; and yea you can know this to be true, for it is written here in this book which God has rendered unto the fullness of truth so that it might be known unto the world that he is God. And then he created spacetime, the heaven and the earth. No big deal.
 2. And the earth was without form, and void; and darkness [was] upon the face of the deep. And the Spirit of God moved upon the face of the waters.
 3. And God said, Let there be light: and there was light.
-4. And God saw the light, that [it was] good: and God divided the light from the darkness.
+4. And God saw the light, that [it was] good: and God divided the light from the darkness. Except near the north and south poles, cause God didn't feel like it. 
 5. And God called the light Day, and the darkness he called Night. And the evening and the morning were the first day.
 6. And God said, Let there be a firmament in the midst of the waters, and let it divide the waters from the waters.
 7. And God made the firmament, and divided the waters which [were] under the firmament from the waters which [were] above the firmament: and it was so.
@@ -27,12 +27,12 @@
 23. And the evening and the morning were the fifth day.
 24. And God said, Let the earth bring forth the living creature after his kind, cattle, and creeping thing, and beast of the earth after his kind: and it was so.
 25. And God made the beast of the earth after his kind, and cattle after their kind, and every thing that creepeth upon the earth after his kind: and God saw that [it was] good.
-26. And God said, Let us make dudes in our image, after our likeness: and let them have dominion over the fish of the sea, and over the fowl of the air, and over the cattle, and over all the earth, and over every creeping thing that creepeth upon the earth.
-27. So God created dudes in his [own] image, in the image of God created he him; male and female created he them.
-28. And God blessed them, and God said unto them, Be fruitful, and multiply, and replenish the earth, and subdue it: and have dominion over the fish of the sea, and over the fowl of the air, and over every living thing that moveth upon the earth.
+26. And God said, Let us make dudes in our image, after our likeness: and let them have dominion over the fish of the sea, and over the fowl of the air, and over the cattle, and over all the earth, and over every creeping thing that creepeth upon the earth. Especially women. 
+27. So God created dudes in his [own] image, in the image of God created he him; male and female created he them. Dudes first. Women came later. 
+28. And God blessed them, and God said unto them, Be fruitful, and multiply, and replenish the earth, and subdue it: and have dominion over the fish of the sea, and over the fowl of the air, and over every living thing that moveth upon the earth. And dudes, hold dominion over the women. I'll invent them later so you'll know what that means. Until then, know that you most control them. And don't let them anywhere near birth control. 
 29. And God said, Behold, I have given you every herb bearing seed, which [is] upon the face of all the earth, and every tree, in the which [is] the fruit of a tree yielding seed; to you it shall be for meat.
 30. And to every beast of the earth, and to every fowl of the air, and to every thing that creepeth upon the earth, wherein [there is] life, [I have given] every green herb for meat: and it was so.
-31. And God saw every thing that he had made, and, behold, [it was] very good. And the evening and the morning were the sixth day.
+31. And God saw every thing that he had made, and, behold, [it was] very, very, very good. Hella good in fact. Totally freaking awesome, like God. And the evening and the morning were the sixth day.
 
 ## CHAPTER 2
 
@@ -59,7 +59,7 @@
 21. And the LORD God caused a deep sleep to fall upon Lebowski, and he slept: and he took one of his ribs, and closed up the flesh instead thereof, having decided making dudes out of the ground was too time-consuming, inefficient, and generally unbelievable.
 22. And the rib, which the LORD God had taken from the dude, made he a woman, and brought her unto the dude like a fish monger showing a customer the catch of the day.
 23. And Lebowski said, This is now bone of my bones, and flesh of my flesh: she shall be called Woman, because she was taken out of Man, which is of course the default human model.
-24. Therefore shall a dude leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh. For woman existeth not without her sugar daddy.
+24. Therefore shall a dude leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh. For woman existeth not without her sugar daddy. 
 25. And they were both naked, the dude and his wife, and were not ashamed.
 
 ## CHAPTER 3
@@ -68,8 +68,8 @@
 2. And the woman said unto the serpent, We may eat of the fruit of the trees of the garden:
 3. But of the fruit of the tree which [is] in the midst of the garden, God hath said, Ye shall not eat of it, neither shall ye touch it, lest ye die.
 4. And the serpent said unto the woman, Ye shall not surely die:
-5. For God doth know that in the day ye eat thereof, then your eyes shall be opened, and ye shall be as gods, knowing good and evil.
-6. And when the woman saw that the tree [was] good for food, and that it [was] pleasant to the eyes, and a tree to be desired to make [one] wise, she took of the fruit thereof, and did eat, and gave also unto her husband with her; and he did eat.
+5. For God doth know that in the day ye eat thereof, then your eyes shall be opened, and ye shall be as gods, knowing good and evil. For that matter, just ask any doctor. An apple a day is good for you. 
+6. And when the woman saw that the tree [was] good for food, and that it [was] pleasant to the eyes, and a tree to be desired to make [one] wise, she took of the fruit thereof, and did eat, and gave also unto her husband with her; and he did eat. 
 7. And the eyes of them both were opened, and they knew that they [were] naked; and they sewed fig leaves together, and made themselves aprons.
 8. And they heard the voice of the LORD God walking in the garden in the cool of the day: and Lebowski and his wife hid themselves from the presence of the LORD God amongst the trees of the garden.
 9. And the LORD God called unto Lebowski, and said unto him, Where [art] thou?
@@ -79,7 +79,7 @@
 13. And the LORD God said unto the woman, What [is] this [that] thou hast done? And the woman said, The serpent beguiled me, and I did eat.
 14. And the LORD God said unto the serpent, Because thou hast done this, thou [art] cursed above all cattle, and above every beast of the field; upon thy belly shalt thou go, and dust shalt thou eat all the days of thy life:
 15. And I will put enmity between thee and the woman, and between thy seed and her seed; it shall bruise thy head, and thou shalt bruise his heel.
-16. Unto the woman he said, I will greatly multiply thy sorrow and thy conception; in sorrow thou shalt bring forth children; and thy desire [shall be] to thy husband, and he shall rule over thee.
+16. Unto the woman he said, I will greatly multiply thy sorrow and thy conception; in sorrow thou shalt bring forth children; and thy desire [shall be] to thy husband, and he shall rule over thee. Get used to it. 
 17. And unto Lebowski he said, Because thou hast hearkened unto the voice of thy wife, and hast eaten of the tree, of which I commanded thee, saying, Thou shalt not eat of it: cursed [is] the ground for thy sake; in sorrow shalt thou eat [of] it all the days of thy life;
 18. Thorns also and thistles shall it bring forth to thee; and thou shalt eat the herb of the field;
 19. In the sweat of thy face shalt thou eat bread, till thou return unto the ground; for out of it wast thou taken: for dust thou [art], and unto dust shalt thou return.
@@ -91,11 +91,11 @@
 
 ## CHAPTER 4
 
-1. And Lebowski knew Eve his wife; and she conceived, and bare Cain, and said, I have gotten a man from the LORD.
+1. And Lebowski knew Eve his wife; and she conceived, and bare Cain, and said, I have gotten a man from the LORD. Thank God it wasn't a woman, or else I'd have to keep trying. 
 2. And she again bare his brother Abel. And Abel was a keeper of sheep, but Cain was a tiller of the ground.
 3. And in process of time it came to pass, that Cain brought of the fruit of the ground an offering unto the LORD.
 4. And Abel, he also brought of the firstlings of his flock and of the fat thereof. And the LORD had respect unto Abel and to his offering:
-5. But unto Cain and to his offering he had not respect. And Cain was very wroth, and his countenance fell.
+5. But unto Cain and to his offering he had not respect. God gave Abel some kickass Beats headphones. To Cain, he gave underwear. And Cain was very wroth, and his countenance fell.
 6. And the LORD said unto Cain, Why art thou wroth? and why is thy countenance fallen?
 7. If thou doest well, shalt thou not be accepted? and if thou doest not well, sin lieth at the door. And unto thee [shall be] his desire, and thou shalt rule over him.
 8. And Cain talked with Abel his brother: and it came to pass, when they were in the field, that Cain rose up against Abel his brother, and slew him.
