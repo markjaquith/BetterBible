@@ -173,7 +173,7 @@
 16. An Ubuntu 14.04 LTS shalt thou install in the computer of the ark, and from a wide screen shalt thou operate it; and the door of the ark shalt thou set in the side thereof; [with] lower, second, and third [stories] shalt thou make it.
 17. And, behold, I, even I, do bring a flood of waters upon the earth, to destroy all flesh, wherein [is] the breath of life, from under heaven; [and] every thing that [is] in the earth shall die.
 18. But with thee will I establish my covenant; and thou shalt come into the ark, thou, and thy sons, and thy wife, and thy sons' wives with thee.
-19. And of every living thing of all flesh, two of every [sort] shalt thou bring into the ark, to keep [them] alive with thee; they shall be male and female.
+19. And of chargers, two of every [sort] shalt thou bring into the ark, to keep [them] alive with thee; they shall have male and female connectors.
 	1. Verily their number will be of countless millions; but you shall trusteth in the ark dimensions I have spoken to thee, and thou shalt not inscribe any figures on cocktail napkins or ponder these matters deeply for I am the LORD.
 20. Of fowls after their kind, and of cattle after their kind, of every creeping thing of the earth after his kind, two of every [sort] shall come unto thee, to keep [them] alive.
 21. And take thou unto thee of all food that is eaten, and thou shalt gather [it] to thee; and it shall be for food for thee, and for them.
