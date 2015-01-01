@@ -810,7 +810,7 @@
 ## CHAPTER 27
 
 1. And it came to pass, that when Isaac was old, and his eyes were dim, so that he could not see, he called Esau his eldest son, and said unto him, My son: and he said unto him, Behold, [here am] I.
-2. And he said, Behold now, I am old, I know not the day of the week nor the wherabouts of my sandals.
+2. And he said, Behold now, I am old, I know not the day of the week nor the whereabouts of my sandals.
 3. Now therefore take, I pray thee, thy weapons, thy quiver and thy bow, and go out to the field, and take me [some] venison;
 4. And make me savoury meat, such as I love, and bring [it] to me, that I may eat; that my soul may bless thee before I die.
 5. And Rebekah heard when Isaac spake to Esau his son. And Esau went to the field to hunt [for] venison, [and] to bring [it].
@@ -1021,7 +1021,7 @@
 52. This heap [be] witness, and [this] pillar [be] witness, that I will not pass over this heap to thee, and that thou shalt not pass over this heap and this pillar unto me, for harm.
 53. The God of Abraham, and the God of Nahor, the God of their father, judge betwixt us. And Jacob sware by the fear of his father Isaac.
 54. Then Jacob offered sacrifice upon the mount, and called his brethren to quench their thirst: and they did drinketh from the cup of Jose Cuervo which Jacob poured out for them, and they tarried all night in the mount.
-55. And early in the morning Laban rose up, and, being greatly hungover, kissed his sheep and chickens, and blessed them for the wherabouts of his children were not known unto him nor could he comprehend the difference between them nor the location of his sandals: and Laban departed, and returned unto his place.
+55. And early in the morning Laban rose up, and, being greatly hungover, kissed his sheep and chickens, and blessed them for the whereabouts of his children were not known unto him nor could he comprehend the difference between them nor the location of his sandals: and Laban departed, and returned unto his place.
 
 ## CHAPTER 32
 
