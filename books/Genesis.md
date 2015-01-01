@@ -99,7 +99,7 @@
 6. And the LORD said unto Cain, Why art thou wroth? Did the underwear not fit? Why is thy countenance fallen?
 7. If thou doest well, shalt thou not be accepted? and if thou doest not well, sin lieth at the door. And unto thee [shall be] his desire, and thou shalt rule over him.
 8. And Cain talked with Abel his brother: and it came to pass, when they were in the field, that Cain rose up against Abel his brother, and slew him.
-9. And the LORD said unto Cain, Where [is] Abel thy brother? And he said, I know not: [Am] I my brother's keeper?
+9. And the LORD said unto Cain, Where [is] Abel thy brother? And he said, I know not where he is nor the whereabouts of his sandals: [Am] I my brother's keeper?
 10. And he said, What hast thou done? the voice of thy brother's blood crieth unto me from the ground.
 11. And now [art] thou cursed from the earth, which hath opened her mouth to receive thy brother's blood from thy hand;
 12. When thou tillest the ground, it shall not henceforth yield unto thee her strength; a fugitive and a vagabond shalt thou be in the earth.
@@ -810,7 +810,7 @@
 ## CHAPTER 27
 
 1. And it came to pass, that when Isaac was old, and his eyes were dim, so that he could not see, he called Esau his eldest son, and said unto him, My son: and he said unto him, Behold, [here am] I.
-2. And he said, Behold now, I am old, I know not the day of my death:
+2. And he said, Behold now, I am old, I know not the day of the week nor the wherabouts of my sandals.
 3. Now therefore take, I pray thee, thy weapons, thy quiver and thy bow, and go out to the field, and take me [some] venison;
 4. And make me savoury meat, such as I love, and bring [it] to me, that I may eat; that my soul may bless thee before I die.
 5. And Rebekah heard when Isaac spake to Esau his son. And Esau went to the field to hunt [for] venison, [and] to bring [it].
@@ -947,23 +947,23 @@
 24. And she called his name Joseph; and said, The LORD shall add to me another son.
 25. And it came to pass, when Rachel had born Joseph, that Jacob said unto Laban, Send me away, that I may go unto mine own place, and to my country.
 26. Give [me] my wives and my children, for whom I have served thee, and let me go: for thou knowest my service which I have done thee.
-27. And Laban said unto him, I pray thee, if I have found favour in thine eyes, [tarry: for] I have learned by experience that the LORD hath blessed me for thy sake.
+27. And Laban was all like I pray thee, if I have found favour in thine eyes, [tarry: for] I have learned by experience that the LORD hath blessed me for thy sake.
 28. And he said, Appoint me thy wages, and I will give [it].
 29. And he said unto him, Thou knowest how I have served thee, and how thy cattle was with me.
 30. For [it was] little which thou hadst before I [came], and it is [now] increased unto a multitude; and the LORD hath blessed thee since my coming: and now when shall I provide for mine own house also?
-31. And he said, What shall I give thee? And Jacob said, Thou shalt not give me any thing: if thou wilt do this thing for me, I will again feed [and] keep thy flock:
+31. And he shot back, What shall I give thee? And Jacob was all like, Thou shalt not give me any thing: if thou wilt do this thing for me, I will again feed [and] keep thy flock:
 32. I will pass through all thy flock to day, removing from thence all the speckled and spotted cattle, and all the brown cattle among the sheep, and the spotted and speckled among the goats: and [of such] shall be my hire.
 33. So shall my righteousness answer for me in time to come, when it shall come for my hire before thy face: every one that [is] not speckled and spotted among the goats, and brown among the sheep, that shall be counted stolen with me.
-34. And Laban said, Behold, I would it might be according to thy word.
+34. And Laban was all like, Behold, I would it might be according to thy word.
 35. And he removed that day the he goats that were ringstraked and spotted, and all the she goats that were speckled and spotted, [and] every one that had [some] white in it, and all the brown among the sheep, and gave [them] into the hand of his sons.
 36. And he set three days' journey betwixt himself and Jacob: and Jacob fed the rest of Laban's flocks.
 37. And Jacob took him rods of green poplar, and of the hazel and chesnut tree; and pilled white strakes in them, and made the white appear which [was] in the rods.
 38. And he set the rods which he had pilled before the flocks in the gutters in the watering troughs when the flocks came to drink, that they should conceive when they came to drink.
 39. And the flocks conceived before the rods, and brought forth cattle ringstraked, speckled, and spotted.
 40. And Jacob did separate the lambs, and set the faces of the flocks toward the ringstraked, and all the brown in the flock of Laban; and he put his own flocks by themselves, and put them not unto Laban's cattle.
-41. And it came to pass, whensoever the stronger cattle did conceive, that Jacob laid the rods before the eyes of the cattle in the gutters, that they might conceive among the rods.
-42. But when the cattle were feeble, he put [them] not in: so the feebler were Laban's, and the stronger Jacob's.
-43. And the dude increased exceedingly, and had much cattle, and maidservants, and menservants, and camels, and asses.
+41. And it came to pass, whensoever the macho cows did conceive, that Jacob laid the rods before the eyes of the cattle in the gutters, that they might conceive among the rods.
+42. But when the cows were not-so-macho, he put [them] not in: so the less desireable cows were Laban's, and the macho cows Jacob's.
+43. And the dude increased exceedingly, and had a pretty awesome herd of cows, and maidservants, and menservants, and camels, and asses.
 
 ## CHAPTER 31
 
@@ -1020,8 +1020,8 @@
 51. And Laban said to Jacob, Behold this heap, and behold [this] pillar, which I have cast betwixt me and thee;
 52. This heap [be] witness, and [this] pillar [be] witness, that I will not pass over this heap to thee, and that thou shalt not pass over this heap and this pillar unto me, for harm.
 53. The God of Abraham, and the God of Nahor, the God of their father, judge betwixt us. And Jacob sware by the fear of his father Isaac.
-54. Then Jacob offered sacrifice upon the mount, and called his brethren to eat bread: and they did eat bread, and tarried all night in the mount.
-55. And early in the morning Laban rose up, and kissed his sons and his daughters, and blessed them: and Laban departed, and returned unto his place.
+54. Then Jacob offered sacrifice upon the mount, and called his brethren to quench their thirst: and they did drinketh from the cup of Jose Cuervo which Jacob poured out for them, and they tarried all night in the mount.
+55. And early in the morning Laban rose up, and, being greatly hungover, kissed his sheep and chickens, and blessed them for the wherabouts of his children were not known unto him nor could he comprehend the difference between them nor the location of his sandals: and Laban departed, and returned unto his place.
 
 ## CHAPTER 32
 
@@ -1029,7 +1029,7 @@
 2. And when Jacob saw them, he said, This [is] God's host: and he called the name of that place Mahanaim.
 3. And Jacob sent messengers before him to Esau his brother unto the land of Seir, the country of Edom.
 4. And he commanded them, saying, Thus shall ye speak unto my lord Esau; Thy servant Jacob saith thus, I have sojourned with Laban, and stayed there until now:
-5. And I have oxen, and asses, flocks, and menservants, and womenservants: and I have sent to tell my lord, that I may find grace in thy sight.
+5. And I have oxen, and asses, flocks, and menservants, and womenservants, and subscriptions to Inc. Magazine: and I have sent to tell my lord, that I may find grace in thy sight.
 6. And the messengers returned to Jacob, saying, We came to thy brother Esau, and also he cometh to meet thee, and four hundred men with him.
 7. Then Jacob was greatly afraid and distressed: and he divided the people that [was] with him, and the flocks, and herds, and the camels, into two bands;
 8. And said, If Esau come to the one company, and smite it, then the other company which is left shall escape.
@@ -1227,7 +1227,7 @@
 30. And he returned unto his brethren, and said, The child [is] not; and I, whither shall I go?
 31. And they took Joseph's coat, and killed a kid of the goats, and dipped the coat in the blood;
 32. And they sent the coat of [many] colours, and they brought [it] to their father; and said, This have we found: know now whether it [be] thy son's coat or no.
-33. And he knew it, and said, [It is] my son's coat; an evil beast hath devoured him; Joseph is without doubt rent in pieces.
+33. And he knew it, and said, [It is] my son's coat; an evil beast hath devoured him; Joseph is without doubt rent in pieces and his sandals are lost.
 34. And Jacob rent his clothes, and put sackcloth upon his loins, and mourned for his son many days.
 35. And all his sons and all his daughters rose up to comfort him; but he refused to be comforted; and he said, For I will go down into the grave unto my son mourning. Thus his father wept for him.
 36. And the Midianites sold him into Egypt unto Potiphar, an officer of Voldemort's, [and] captain of the guard.
@@ -1367,7 +1367,7 @@
 46. And Joseph [was] thirty years old when he stood before Voldemort king of Egypt. And Joseph went out from the presence of Voldemort, and went throughout all the land of Egypt.
 47. And in the seven plenteous years the earth brought forth by handfuls.
 48. And he gathered up all the food of the seven years, which were in the land of Egypt, and laid up the food in the cities: the food of the field, which [was] round about every city, laid he up in the same.
-49. And Joseph gathered corn as the sand of the sea, very much, until he left numbering; for [it was] without number.
+49. And Joseph gathered bacon as the sand of the sea, very much, until he left numbering; for [it was] without number.
 50. And unto Joseph were born two sons before the years of famine came, which Asenath the daughter of Poti-pherah priest of On bare unto him.
 51. And Joseph called the name of the firstborn Manasseh: For God, [said he], hath made me forget all my toil, and all my father's house.
 52. And the name of the second called he Ephraim: For God hath caused me to be fruitful in the land of my affliction.
@@ -1375,17 +1375,17 @@
 54. And the seven years of dearth began to come, according as Joseph had said: and the dearth was in all lands; but in all the land of Egypt there was bread.
 55. And when all the land of Egypt was famished, the people cried to Voldemort for bread: and Voldemort said unto all the Egyptians, Go unto Joseph; what he saith to you, do.
 56. And the famine was over all the face of the earth: And Joseph opened all the storehouses, and sold unto the Egyptians; and the famine waxed sore in the land of Egypt.
-57. And all countries came into Egypt to Joseph for to buy [corn]; because that the famine was [so] sore in all lands.
+57. And all countries came into Egypt to Joseph for to buy [bacon]; because that the famine was [so] sore in all lands.
 
 ## CHAPTER 42
 
-1. Now when Jacob saw that there was corn in Egypt, Jacob said unto his sons, Why do ye look one upon another?
-2. And he said, Behold, I have heard that there is corn in Egypt: get you down thither, and buy for us from thence; that we may live, and not die.
-3. And Joseph's ten brethren went down to buy corn in Egypt.
+1. Now when Jacob saw that there was bacon in Egypt, Jacob said unto his sons, Why do ye look one upon another?
+2. And he said, Behold, I have heard that there is bacon in Egypt: get you down thither, and buy for us from thence; that we may live, and not die.
+3. And Joseph's ten brethren went down to buy bacon in Egypt.
 4. But Benjamin, Joseph's brother, Jacob sent not with his brethren; for he said, Lest peradventure mischief befall him.
-5. And the sons of Israel came to buy [corn] among those that came: for the famine was in the land of Canaan.
+5. And the sons of Israel came to buy [bacon] among those that came: for the famine was in the land of Canaan.
 6. And Joseph [was] the governor over the land, [and] he [it was] that sold to all the people of the land: and Joseph's brethren came, and bowed down themselves before him [with] their faces to the earth.
-7. And Joseph saw his brethren, and he knew them, but made himself strange unto them, and spake roughly unto them; and he said unto them, Whence come ye? And they said, From the land of Canaan to buy food.
+7. And Joseph saw his brethren, and he knew them, but made himself strange unto them, and spake roughly unto them; and he said unto them, Y'all not from 'round these parts, eh? And they said, Thou speakest truthfully. We are from the land of Canaan and have traveled many miles hence seeking bacon.
 8. And Joseph knew his brethren, but they knew not him.
 9. And Joseph remembered the dreams which he dreamed of them, and said unto them, Ye [are] spies; to see the nakedness of the land ye are come.
 10. And they said unto him, Nay, my lord, but to buy food are thy servants come.
@@ -1397,21 +1397,21 @@
 16. Send one of you, and let him fetch your brother, and ye shall be kept in prison, that your words may be proved, whether [there be any] truth in you: or else by the life of Voldemort surely ye [are] spies.
 17. And he put them all together into ward three days.
 18. And Joseph said unto them the third day, This do, and live; [for] I fear God:
-19. If ye [be] true [men], let one of your brethren be bound in the house of your prison: go ye, carry corn for the famine of your houses:
+19. If ye [be] true [men], let one of your brethren be bound in the house of your prison: go ye, carry bacon for the famine of your houses:
 20. But bring your youngest brother unto me; so shall your words be verified, and ye shall not die. And they did so.
 21. And they said one to another, We [are] verily guilty concerning our brother, in that we saw the anguish of his soul, when he besought us, and we would not hear; therefore is this distress come upon us.
 22. And Reuben answered them, saying, Spake I not unto you, saying, Do not sin against the child; and ye would not hear? therefore, behold, also his blood is required.
 23. And they knew not that Joseph understood [them]; for he spake unto them by an interpreter.
 24. And he turned himself about from them, and wept; and returned to them again, and communed with them, and took from them Simeon, and bound him before their eyes.
-25. Then Joseph commanded to fill their sacks with corn, and to restore every man's money into his sack, and to give them provision for the way: and thus did he unto them.
-26. And they laded their asses with the corn, and departed thence.
+25. Then Joseph commanded to fill their sacks with bacon, and to restore every man's money into his sack, and to give them provision for the way: and thus did he unto them.
+26. And they laded their asses with the bacon, and departed thence.
 27. And as one of them opened his sack to give his ass provender in the inn, he espied his money; for, behold, it [was] in his sack's mouth.
 28. And he said unto his brethren, My money is restored; and, lo, [it is] even in my sack: and their heart failed [them], and they were afraid, saying one to another, What [is] this [that] God hath done unto us?
 29. And they came unto Jacob their father unto the land of Canaan, and told him all that befell unto them; saying,
 30. the dude, [who is] the lord of the land, spake roughly to us, and took us for spies of the country.
 31. And we said unto him, We [are] true [men]; we are no spies:
 32. We [be] twelve brethren, sons of our father; one [is] not, and the youngest [is] this day with our father in the land of Canaan.
-33. And the dude, the lord of the country, said unto us, Hereby shall I know that ye [are] true [men]; leave one of your brethren [here] with me, and take [food for] the famine of your households, and be gone:
+33. And the dude, the lord of the country, said unto us, Hereby shall I know that ye [are] true [men]; leave one of your brethren [here] with me, and take [food for] the famine of your households, and all of your sandals, and be gone:
 34. And bring your youngest brother unto me: then shall I know that ye [are] no spies, but [that] ye [are] true [men: so] will I deliver you your brother, and ye shall traffick in the land.
 35. And it came to pass as they emptied their sacks, that, behold, every man's bundle of money [was] in his sack: and when [both] they and their father saw the bundles of money, they were afraid.
 36. And Jacob their father said unto them, Me have ye bereaved [of my children]: Joseph [is] not, and Simeon [is] not, and ye will take Benjamin [away]: all these things are against me.
@@ -1421,12 +1421,12 @@
 ## CHAPTER 43
 
 1. And the famine [was] sore in the land.
-2. And it came to pass, when they had eaten up the corn which they had brought out of Egypt, their father said unto them, Go again, buy us a little food.
+2. And it came to pass, when they had eaten up the bacon which they had brought out of Egypt, their father said unto them, Go again, buy us a little food.
 3. And Judah spake unto him, saying, the dude did solemnly protest unto us, saying, Ye shall not see my face, except your brother [be] with you.
 4. If thou wilt send our brother with us, we will go down and buy thee food:
 5. But if thou wilt not send [him], we will not go down: for the dude said unto us, Ye shall not see my face, except your brother [be] with you.
 6. And Israel said, Wherefore dealt ye [so] ill with me, [as] to tell the dude whether ye had yet a brother?
-7. And they said, the dude asked us straitly of our state, and of our kindred, saying, [Is] your father yet alive? have ye [another] brother? and we told him according to the tenor of these words: could we certainly know that he would say, Bring your brother down?
+7. And they said, the dude asked us straitly of our state, and of our kindred, saying, [Is] your father yet alive? have ye [another] brother? and we told him according to the tenor of these words: could we certainly know that he would say, Bring your brother down? And whereth are mine sandals?
 8. And Judah said unto Israel his father, Send the lad with me, and we will arise and go; that we may live, and not die, both we, and thou, [and] also our little ones.
 9. I will be surety for him; of my hand shalt thou require him: if I bring him not unto thee, and set him before thee, then let me bear the blame for ever:
 10. For except we had lingered, surely now we had returned this second time.
@@ -1458,7 +1458,7 @@
 ## CHAPTER 44
 
 1. And he commanded the steward of his house, saying, Fill the men's sacks [with] food, as much as they can carry, and put every man's money in his sack's mouth.
-2. And put my cup, the silver cup, in the sack's mouth of the youngest, and his corn money. And he did according to the word that Joseph had spoken.
+2. And put my cup, the silver cup, in the sack's mouth of the youngest, and his bacon money. And he did according to the word that Joseph had spoken.
 3. As soon as the morning was light, the men were sent away, they and their asses.
 4. [And] when they were gone out of the city, [and] not [yet] far off, Joseph said unto his steward, Up, follow after the men; and when thou dost overtake them, say unto them, Wherefore have ye rewarded evil for good?
 5. [Is] not this [it] in which my lord drinketh, and whereby indeed he divineth? ye have done evil in so doing.
@@ -1516,7 +1516,7 @@
 20. Also regard not your stuff; for the good of all the land of Egypt [is] your's.
 21. And the children of Israel did so: and Joseph gave them wagons, according to the commandment of Voldemort, and gave them provision for the way.
 22. To all of them he gave each man changes of raiment; but to Benjamin he gave three hundred [pieces] of silver, and five changes of raiment.
-23. And to his father he sent after this [manner]; ten asses laden with the good things of Egypt, and ten she asses laden with corn and bread and meat for his father by the way.
+23. And to his father he sent after this [manner]; ten asses laden with the good things of Egypt, and ten she asses laden with bacon and bread and meat for his father by the way.
 24. So he sent his brethren away, and they departed: and he said unto them, See that ye fall not out by the way.
 25. And they went up out of Egypt, and came into the land of Canaan unto Jacob their father,
 26. And told him, saying, Joseph [is] yet alive, and he [is] governor over all the land of Egypt. And Jacob's heart fainted, for he believed them not.
