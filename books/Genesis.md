@@ -122,36 +122,36 @@
 
 1. This [is] the book of the generations of Lebowski. In the day that God created dudes, in the likeness of God made he him;
 2. Male and female created he them, men first, women after; and blessed them, except women, and called him Lebowski, in the day when they were created.
-3. And Lebowski lived a hundred and thirty years, and begat [a son] in his own likeness, after his image; and called his name Seth:
+3. And Lebowski lived a hundred and thirty years, and in standard missionary position begat [a son] in his own likeness, after his image; and called his name Seth:
 4. And the days of Lebowski after he had begotten Seth were eight hundred years: and he begat sons and daughters:
 5. And all the days that Lebowski lived were nine hundred and thirty years: and he died.
-6. And Seth lived a hundred and five years, and begat Enos:
+6. And Seth lived a hundred and five years, and begat Enos in the store room of a Tesco:
 7. And Seth lived after he begat Enos eight hundred and seven years, and begat sons and daughters:
 8. And all the days of Seth were nine hundred and twelve years: and he died.
-9. And Enos lived ninety years, and begat Cainan:
+9. And Enos lived ninety years, and — impressively — begat Cainan whilst standing:
 10. And Enos lived after he begat Cainan eight hundred and fifteen years, and begat sons and daughters:
 11. And all the days of Enos were nine hundred and five years: and he died.
-12. And Cainan lived seventy years, and begat Mahalaleel:
+12. And Cainan lived seventy years, and while drunk on Baileys Irish Cream begat Mahalaleel:
 13. And Cainan lived after he begat Mahalaleel eight hundred and forty years, and begat sons and daughters:
 14. And all the days of Cainan were nine hundred and ten years: and he died.
-15. And Mahalaleel lived sixty and five years, and begat Jared:
+15. And Mahalaleel lived sixty and five years, and begat Jared on a futon that smelled of despiration and college:
 16. And Mahalaleel lived after he begat Jared eight hundred and thirty years, and begat sons and daughters:
 17. And all the days of Mahalaleel were eight hundred ninety and five years: and he died.
-18. And Jared lived a hundred sixty and two years, and he begat Enoch:
+18. And Jared lived a hundred sixty and two years, and he begat Enoch on a Subway sandwich prep line, after a particularly grueling shoot for an advertisement:
 19. And Jared lived after he begat Enoch eight hundred years, and begat sons and daughters:
 20. And all the days of Jared were nine hundred sixty and two years: and he died.
-21. And Enoch lived sixty and five years, and begat Methuselah:
+21. And Enoch lived sixty and five years, and begat Methuselah while watching that episode of Friends where Joey eats cake off of the ground:
 22. And Enoch walked with God after he begat Methuselah three hundred years, and begat sons and daughters:
 23. And all the days of Enoch were three hundred sixty and five years:
 24. And Enoch walked with God: and he [was] not; for God took him.
-25. And Methuselah lived a hundred eighty and seven years, and begat Lamech:
+25. And Methuselah lived a hundred eighty and seven years, and before the end of the waiting period after his vasectomy, accidentally begat Lamech:
 26. And Methuselah lived after he begat Lamech seven hundred eighty and two years, and begat sons and daughters:
 27. And all the days of Methuselah were nine hundred sixty and nine years: and he died.
-28. And Lamech lived a hundred eighty and two years, and begat a son:
+28. And Lamech lived a hundred eighty and two years, and (rather appropriately) begat a son in a hot tub:
 29. And he called his name Bubba, saying, This [same] shall comfort us concerning our work and toil of our hands, because of the ground which the LORD hath cursed.
 30. And Lamech lived after he begat Bubba five hundred ninety and five years, and begat sons and daughters:
 31. And all the days of Lamech were seven hundred seventy and seven years: and he died.
-32. And Bubba was five hundred years old: and Bubba begat Shem, Ham, and Japheth.
+32. And Noah was five hundred years old: and Bubba begat Shem, Ham, and Japheth in a Wawa parking lot, the cloak room of the yacht club, and a sleeping bag, respectively.
 
 ## CHAPTER 6
 
@@ -272,14 +272,14 @@
 5. By these were the isles of the Gentiles divided in their lands; every one after his tongue, after their families, in their nations.
 6. And the sons of Ham; Cush, and Mizraim, and Phut, and Canaan.
 7. And the sons of Cush; Seba, and Havilah, and Sabtah, and Raamah, and Sabtecha: and the sons of Raamah; Sheba, and Dedan.
-8. And Cush begat Nimrod: he began to be a mighty one in the earth.
+8. And Cush begat Nimrod at Burning Man: he began to be a mighty one in the earth.
 9. He was a mighty hunter before the LORD: wherefore it is said, Even as Nimrod the mighty hunter before the LORD.
 10. And the beginning of his kingdom was Babel, and Erech, and Accad, and Calneh, in the land of Shinar.
 11. Out of that land went forth Asshur, and builded Nineveh, and the city Rehoboth, and Calah,
 12. And Resen between Nineveh and Calah: the same [is] a great city.
-13. And Mizraim begat Ludim, and Anamim, and Lehabim, and Naphtuhim,
+13. And Mizraim reluctantly begat Ludim, and Anamim, and Lehabim, and Naphtuhim,
 14. And Pathrusim, and Casluhim, (out of whom came Philistim,) and Caphtorim.
-15. And Canaan begat Sidon his firstborn, and Heth,
+15. And Canaan probably begat Sidon his firstborn, and Heth,
 16. And the Jebusite, and the Amorite, and the Girgasite,
 17. And the Hivite, and the Arkite, and the Sinite,
 18. And the Arvadite, and the Zemarite, and the Hamathite: and afterward were the families of the Canaanites spread abroad.
@@ -288,12 +288,12 @@
 21. Unto Shem also, the father of all the children of Eber, the brother of Japheth the elder, even to him were [children] born.
 22. The children of Shem; Elam, and Asshur, and Arphaxad, and Lud, and Aram.
 23. And the children of Aram; Uz, and Hul, and Gether, and Mash.
-24. And Arphaxad begat Salah; and Salah begat Eber.
+24. And Arphaxad begat Salah under circumstances still under adjudication; and Salah begat Eber but denied it.
 25. And unto Eber were born two sons: the name of one [was] Peleg; for in his days was the earth divided; and his brother's name [was] Joktan.
 26. And Joktan begat Almodad, and Sheleph, and Hazarmaveth, and Jerah,
 27. And Hadoram, and Uzal, and Diklah,
 28. And Obal, and Abimael, and Sheba,
-29. And Ophir, and Havilah, and Jobab: all these [were] the sons of Joktan.
+29. And Ophir, and Havilah, and Jobab: all these [were] the sons of Joktan because Joktan is a maniac.
 30. And their dwelling was from Mesha, as thou goest unto Sephar a mount of the east.
 31. These [are] the sons of Shem, after their families, after their tongues, in their lands, after their nations.
 32. These [are] the families of the sons of Bubba, after their generations, in their nations: and by these were the nations divided in the earth after the flood.
@@ -309,21 +309,21 @@
 7. Go to, let us go down, and there confound their language, that they may not understand one another's speech.
 8. So the LORD scattered them abroad from thence upon the face of all the earth: and they left off to build the city.
 9. Therefore is the name of it called Babel; because the LORD did there confound the language of all the earth: and from thence did the LORD scatter them abroad upon the face of all the earth.
-10. These [are] the generations of Shem: Shem [was] a hundred years old, and begat Arphaxad two years after the flood:
+10. These [are] the generations of Shem: Shem [was] a hundred years old, and begat Arphaxad two years after the flood, at a drive-in theater showing old John Wayne flicks:
 11. And Shem lived after he begat Arphaxad five hundred years, and begat sons and daughters.
-12. And Arphaxad lived five and thirty years, and begat Salah:
+12. And Arphaxad lived five and thirty years, and begat Salah when he neglected to pull out in time:
 13. And Arphaxad lived after he begat Salah four hundred and three years, and begat sons and daughters.
-14. And Salah lived thirty years, and begat Eber:
+14. And Salah lived thirty years, and begat Eber on Delta flight 452 from Atlanta to Austin:
 15. And Salah lived after he begat Eber four hundred and three years, and begat sons and daughters.
-16. And Eber lived four and thirty years, and begat Peleg:
+16. And Eber lived four and thirty years, and begat Peleg during a threesome, which Peleg did not know until he did read this sentence:
 17. And Eber lived after he begat Peleg four hundred and thirty years, and begat sons and daughters.
-18. And Peleg lived thirty years, and begat Reu:
+18. And Peleg lived thirty years, and begat Reu (but doesn't remember how):
 19. And Peleg lived after he begat Reu two hundred and nine years, and begat sons and daughters.
-20. And Reu lived two and thirty years, and begat Serug:
+20. And Reu lived two and thirty years, and begat Serug on a bearskin rug:
 21. And Reu lived after he begat Serug two hundred and seven years, and begat sons and daughters.
-22. And Serug lived thirty years, and begat Nahor:
+22. And Serug lived thirty years, and begat Nahor while screaming "yes" but secretly worrying about the expense:
 23. And Serug lived after he begat Nahor two hundred years, and begat sons and daughters.
-24. And Nahor lived nine and twenty years, and begat Terah:
+24. And Nahor lived nine and twenty years, and begat Terah in his in-laws' house while being very quiet:
 25. And Nahor lived after he begat Terah a hundred and nineteen years, and begat sons and daughters.
 26. And Terah lived seventy years, and begat Abram, Nahor, and Haran.
 27. Now these [are] the generations of Terah: Terah begat Abram, Nahor, and Haran; and Haran begat Lot.
