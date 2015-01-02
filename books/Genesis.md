@@ -98,7 +98,7 @@
 5. But unto Cain and to his offering he had not respect. It came to pass that God gave Abel some Beats headphones. And to Cain, he gave seven tube socks. And so Cain was very wroth, and his countenance fell.
 6. And the LORD said unto Cain, Why art thou wroth? Did the socks not fit? Why is thy countenance fallen?
 7. If thou doest well, shalt thou not be accepted? and if thou doest not well, sin lieth at the door. And unto thee [shall be] his desire, and thou shalt rule over him.
-8. And Cain talked with Abel his brother: and it came to pass, when they were in the field, that Cain rose up against Abel his brother, and slew him.
+8. And Cain talked with Abel his brother: and it came to pass, when they were in the field, that Cain rose up against Abel his brother (no, not in a sexual way), and slew him.
 9. And the LORD said unto Cain, Where [is] Abel thy brother? And he said, I know not where he is nor the whereabouts of his sandals: [Am] I my brother's keeper?
 10. And he said, What hast thou done? the voice of thy brother's blood crieth unto me from the ground.
 11. And now [art] thou cursed from the earth, which hath opened her mouth to receive thy brother's blood from thy hand;
