@@ -134,7 +134,7 @@
 12. And Cainan lived seventy years, and while drunk on Baileys Irish Cream begat Mahalaleel:
 13. And Cainan lived after he begat Mahalaleel eight hundred and forty years, and begat sons and daughters:
 14. And all the days of Cainan were nine hundred and ten years: and he died.
-15. And Mahalaleel lived sixty and five years, and begat Jared on a futon that smelled of despiration and college:
+15. And Mahalaleel lived sixty and five years, and begat Jared on a futon that smelled of desperation and college:
 16. And Mahalaleel lived after he begat Jared eight hundred and thirty years, and begat sons and daughters:
 17. And all the days of Mahalaleel were eight hundred ninety and five years: and he died.
 18. And Jared lived a hundred sixty and two years, and he begat Enoch on a Subway sandwich prep line, after a particularly grueling shoot for an advertisement:
