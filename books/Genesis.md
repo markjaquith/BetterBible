@@ -95,8 +95,8 @@
 2. But keep trying they did anyway, and soon she bare his brother Abel. And Abel was a keeper of sheep, but Cain was a tiller of the ground.
 3. And in process of time it came to pass, that Cain brought of the fruit of the ground an offering unto the LORD.
 4. And Abel, he also brought of the firstlings of his flock and of the fat thereof. And the LORD had respect unto Abel and to his offering:
-5. But unto Cain and to his offering he had not respect. So God gave Abel some Beats headphones. And to Cain, he gave underwear. And so Cain was very wroth, and his countenance fell.
-6. And the LORD said unto Cain, Why art thou wroth? Did the underwear not fit? Why is thy countenance fallen?
+5. But unto Cain and to his offering he had not respect. It came to pass that God gave Abel some Beats headphones. And to Cain, he gave seven tube socks. And so Cain was very wroth, and his countenance fell.
+6. And the LORD said unto Cain, Why art thou wroth? Did the socks not fit? Why is thy countenance fallen?
 7. If thou doest well, shalt thou not be accepted? and if thou doest not well, sin lieth at the door. And unto thee [shall be] his desire, and thou shalt rule over him.
 8. And Cain talked with Abel his brother: and it came to pass, when they were in the field, that Cain rose up against Abel his brother, and slew him.
 9. And the LORD said unto Cain, Where [is] Abel thy brother? And he said, I know not where he is nor the whereabouts of his sandals: [Am] I my brother's keeper?
