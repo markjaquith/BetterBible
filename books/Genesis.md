@@ -84,6 +84,7 @@
 18. Thorns also and thistles shall it bring forth to thee; and thou shalt eat the herb of the field;
 19. In the sweat of thy face shalt thou eat bread, till thou return unto the ground; for out of it wast thou taken: for dust thou [art], and unto dust shalt thou return.
 20. And Lebowski called his wife's name Eve; because she was the mother of all living.
+	1. And Eve then spoketh with Alison Bechdel, who was within the garden. And they spoke of many things, but not about Lebowski.
 21. Unto Lebowski also and to his wife did the LORD God make coats of skins, and clothed them.
 22. And the LORD God said, Behold, the dude is become as one of us, to know good and evil: and now, lest he put forth his hand, and take also of the tree of life, and eat, and live for ever:
 23. Therefore the LORD God sent him forth from the garden of Eden, to till the ground from whence he was taken.
